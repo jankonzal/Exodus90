@@ -1,3 +1,5 @@
+TVOJE OČIŠTĚNÉ PROČ
+
 Denní navigace: 8. týden
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
