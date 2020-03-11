@@ -1,3 +1,5 @@
+ÚČASTNIT SE OBĚTI MŠE
+
 Denní navigace: 9. týden
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
