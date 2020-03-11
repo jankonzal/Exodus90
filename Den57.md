@@ -49,3 +49,27 @@ a já budu bydlet uprostřed nich. Uděláte všechno přesně podle toho, co ti
 ukazuji jako vzor svatého příbytku i vzor všech bohoslužebných předmětů.
 
 Zamyšlení:
+  Jako křesťané nepřinášíme přesnou oběť, kterou žádá Bůh v dnešním čtení z knihy
+Exodus. Pán nás však žádá, abychom se obětovali, abychom podpořili práci církve.
+Ve skutečnosti jsou křesťané žádáni, aby dali ještě víc, než kolik zlata
+a stříbra Bůh požadoval od Izraelitů. Svatý Pavel nám říká, že máme dávat svá
+těla jako oběť Bohu a Církvi. "Vybízím vás, bratří, pro Boží milosrdenství,
+abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je
+vaše pravá bohoslužba." (Římanům 12: 1)
+Katechismus to krásně vysvětluje: (CCC 1368)
+  Církev, jež je Kristovým Tělem, má účast na oběti své Hlavy. Je s Kristem sama
+celá obětována. Spojuje se s jeho přímluvou u Otce za všechny lidi. V eucharistii
+se stává Kristova oběť také obětí údů jeho Těla. Život věřících, jejich chvála,
+jejich utrpení, jejich modlitba, jejich práce jsou spojeny s Kristovou chválou
+a modlitbou, s jeho utrpením a prací i s jeho bezvýhradnou obětí a tím získávají
+novou hodnotu. Kristova oběť, přítomná na oltáři, poskytuje všem generacím
+křesťanů možnost být spojeni s jeho obětí.
+  Udělej si chvilku a zamysli se nad svou účastí na mši. Nudíš se? Nedokážeš
+udržet myšlenky? Považuješ eucharistickou modlitbu za něco, co má říci jen kněz,
+zatímco lidé v lavicích se jen dívají? Nebo plně a aktivně vstupuješ do Kristovy
+oběti při každé mši? Pokus se naplno vstoupit do mše tím, že se během obětování
+a eucharistické modlitby (když jsou peníze shromážděny a dary jsou předány) plně
+nabídneš Kristu. Až přijde čas přijmout eucharistii, budeš připraven vzpomenout
+si na bolesti Velkého pátku během oběti na oltáři. O to smysluplnější pak bude
+oslava z mrtvých vstalého pána (mini-Velikonoce) a přijetí Eucharistie. Vzpomeň
+na to v dnešní modlitbě a rozhodni se s Pánem, aby ses více účastnil Mše svaté.
