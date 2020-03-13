@@ -4,9 +4,7 @@
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
 
-Izraelci se učí, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh
-přebývá mezi svým lidem. Tvoje tělo je chrámem Ducha svatého. Co děláte pro to,
-aby toto místo bylo svaté, aby v tobě mohl přebývat Bůh?
+Izraelci se učí, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh přebývá mezi svým lidem. Tvoje tělo je chrámem Ducha svatého. Co děláte pro to, aby toto místo bylo svaté, aby v tobě mohl přebývat Bůh?
 
 Akční body:
 1. Pokračuj v tvrdém cvičení.
@@ -22,7 +20,7 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš...
 
 
-#### Exodus 26:1–14
+#### Exodus 26:1–14 (ČEP)
 *Zhotovíš příbytek z deseti pruhů jemně tkaného plátna a z látky purpurově fialové, nachové a karmínové; zhotovíš je s umně vetkanými cheruby.
 Jeden pruh bude dlouhý dvacet osm loket a široký čtyři lokte. Takový bude jeden pruh. Všechny pruhy budou mít stejné rozměry.
 Pět pruhů bude navzájem po délce spojeno, a právě tak bude navzájem spojeno druhých pět.
@@ -38,7 +36,7 @@ Z toho, co bude ze stanových houní přesahovat, bude přesahující polovina h
 Loket z té i oné strany, o nějž budou stanové houně větší, bude tvořit na bočních stranách příbytku převis, aby byl cele přikryt.
 Zhotovíš pro stan též přikrývku z beraních kůží zbarvených načerveno a navrch přikrývku z tachaších kůží.*
 
-#### Reflexe
+#### Zamyšlení:
 Dnes Bůh řídí výstavbu přenosného a propracovaného stanu, v němž bude umístěna Archa smlouvy, spolu se vším, co bude nutné pro liturgické bohoslužby. Bylo nám řečeno, že i když je stan vyroben z několika záclon a potahů, bude spojen dohromady tak, že „může být jeden celek“ (Exodus 26:11). Toto je znamení od Otce, že vesmír je držen pohromadě a je vždy a navždy poznamenána hlubokou jednotou.
 
 Krátce před svou vášní se Ježíš vroucně modlil: „Svatý otče, nech si je ve svém jménu, které jsi mi dal, aby byli jedno, i když jsme jedno“ (Jan 17:11). Křesťané jsou pokřtěni do jediného mystického těla Kristova. Není možné být křesťanem a jednoduše jednotlivcem; to znamená, že není spojeno s jediným tělem Kristovým, s církví. Být oddělený od Církve se musí oddělit od samotného těla, do kterého jste byli pokřtěni. Musí být oddělen od Krista. Důležitost této jednoty lze vidět v péči, kterou Ježíš vzal k založení církve, než za ni zemřel. Nainstaloval centrum pro svou církev, skálu, na které se mohl spojit celý křesťanský svět. Díky Duchu Svatému nepřetržitá řada nástupců sv. Petra (první skála, na které stojí církev) pokračovala dodnes, jak Kristus zaslíbil (Matouš 16:18).
