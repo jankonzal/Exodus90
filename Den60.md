@@ -4,9 +4,7 @@
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
 
-Izraelci se učí, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh
-přebývá mezi svým lidem. Tvoje tělo je chrámem Ducha svatého. Co děláte pro to,
-aby toto místo bylo svaté, aby v tobě mohl přebývat Bůh?
+Izraelci se učí, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh přebývá mezi svým lidem. Tvoje tělo je chrámem Ducha svatého. Co děláte pro to, aby toto místo bylo svaté, aby v tobě mohl přebývat Bůh?
 
 Akční body:
 1. Pokračuj v tvrdém cvičení.
