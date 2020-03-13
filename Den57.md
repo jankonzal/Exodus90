@@ -35,7 +35,7 @@ srst; načerveno zbarvené beraní kůže, tachaší kůže a akáciové dřevo;
 ukazuji jako vzor svatého příbytku i vzor všech bohoslužebných předmětů.*
 
 #### Zamyšlení:
-Jako křesťané nepřinášíme přesnou oběť, kterou žádá Bůh v dnešním čtení z knihy Exodus. Pán nás však žádá, abychom se obětovali, abychom podpořili práci církve. Ve skutečnosti jsou křesťané žádáni, aby dali ještě víc, než kolik zlata a stříbra Bůh požadoval od Izraelitů. Svatý Pavel nám říká, že máme dávat svá těla jako oběť Bohu a Církvi. "Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba." (Římanům 12: 1) Katechismus to krásně vysvětluje: (CCC 1368)
+Jako křesťané nepřinášíme přesnou oběť, kterou žádá Bůh v dnešním čtení z knihy Exodus. Pán nás však žádá, abychom se obětovali, abychom podpořili práci církve. Ve skutečnosti jsou křesťané žádáni, aby dali ještě víc, než kolik zlata a stříbra Bůh požadoval od Izraelitů. Svatý Pavel nám říká, že máme dávat svá těla jako oběť Bohu a Církvi. "Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba." (Římanům 12: 1) Katechismus to krásně vysvětluje: (KKC 1368)
 
 Církev, jež je Kristovým Tělem, má účast na oběti své Hlavy. Je s Kristem sama celá obětována. Spojuje se s jeho přímluvou u Otce za všechny lidi. V eucharistii se stává Kristova oběť také obětí údů jeho Těla. Život věřících, jejich chvála, jejich utrpení, jejich modlitba, jejich práce jsou spojeny s Kristovou chválou
 a modlitbou, s jeho utrpením a prací i s jeho bezvýhradnou obětí a tím získávají novou hodnotu. Kristova oběť, přítomná na oltáři, poskytuje všem generacím křesťanů možnost být spojeni s jeho obětí.
