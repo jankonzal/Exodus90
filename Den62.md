@@ -31,4 +31,4 @@ Otec si tě přeje vychovat, jeho syna. Žádný dobrý otec nepřivádí syna n
 
 Vložil jsi svou důvěru v Pána tím, že jsi se rozhodl pro toto duchovní cvičení. Pokračuj nyní, abys byl otevřený Bohu v modlitbě. Měj k němu důvěru. Pokud jsi ochotný podřídit se jeho láskyplnému plánu, vybuduje tě a tvoje práce nebude zbytečná.
 
-Ve dnešní modlitbě pros Otce o nasměrování a radu, jak být mužem, po kterém touží.
+V dnešní modlitbě pros Otce o nasměrování a radu, jak být mužem, po kterém touží.
