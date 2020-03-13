@@ -1,4 +1,4 @@
-# Exodus90
+# Exodus 90
 Duchovní cvičení [Exodus 90](https://exodus90.com/) (velmi velmi pracovní překlad)
 
 #### Pár informací
@@ -8,9 +8,9 @@ Duchovní cvičení [Exodus 90](https://exodus90.com/) (velmi velmi pracovní p�
 - Pro překlad reflexe používám Google překladač, pokud něco vypadá jako totál nesmysl snažím se dohledat význam.
 
 #### Formátování
-- Nadpis (velké písmo): /# NADPIS DNE
-- Denní navigace, odkaz úryvku, reflexe: /#### Exodus 24:12–18 (ČEP)
-- Úryvky jsou psaný kurzívou: \* * Hospodin řekl Mojžíšovi: „Vystup... *  \*
+- Nadpis (velké písmo): \# NADPIS DNE
+- Denní navigace, odkaz úryvku, reflexe: \#### Exodus 24:12–18 (ČEP)
+- Úryvky jsou psaný kurzívou:\* *Hospodin řekl Mojžíšovi: „Vystup...* \*
 - Odstavce se oddělují prázdným řádkem
 - Seznamy se tvoří za pomocí pomlčky [-] nebo čísla [1.]
 
