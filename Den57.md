@@ -30,14 +30,8 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš...
 
 #### Exodus 25:1–9 (CEP)
-*Hospodin promluvil k Mojžíšovi: „Mluv k synům Izraele, ať pro mne vyberou oběť
-pozdvihování. Vyberete oběť pozdvihování pro mne od každého, kdo ji ze srdce
-dobrovolně odevzdá. Toto bude oběť pozdvihování, kterou od nich vyberete: zlato,
-stříbro a měď; látka purpurově fialová, nachová a karmínová, jemné plátno a kozí
-srst; načerveno zbarvené beraní kůže, tachaší kůže a akáciové dřevo; olej na
-svícení, balzámy na olej k pomazání a na kadidlo z vonných látek; karneolové
-drahokamy a kameny pro zasazení do nárameníku a náprsníku. Ať mi udělají svatyni
-a já budu bydlet uprostřed nich. Uděláte všechno přesně podle toho, co ti
+*Hospodin promluvil k Mojžíšovi: „Mluv k synům Izraele, ať pro mne vyberou oběť pozdvihování. Vyberete oběť pozdvihování pro mne od každého, kdo ji ze srdce dobrovolně odevzdá. Toto bude oběť pozdvihování, kterou od nich vyberete: zlato,stříbro a měď; látka purpurově fialová, nachová a karmínová, jemné plátno a kozí
+srst; načerveno zbarvené beraní kůže, tachaší kůže a akáciové dřevo; olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek; karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. Ať mi udělají svatyni a já budu bydlet uprostřed nich. Uděláte všechno přesně podle toho, co ti
 ukazuji jako vzor svatého příbytku i vzor všech bohoslužebných předmětů.*
 
 #### Zamyšlení:
