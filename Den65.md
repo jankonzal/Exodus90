@@ -25,7 +25,7 @@ Otče náš...
 #### Zamyšlení:
 Bůh se stará o maličkosti. V liturgii záleží na detailech, protože vyjadřují Boží svatost. Když se liturgie slaví platně a důstojným způsobem, má schopnost nás o Bohu naučit mnohem víc, než by kdy mohla lidská slova. To byl případ Izraelitů a je tomu tak i dnes. Špatně slavená liturgie nás učí špatné teologii. Bůh nám ukazuje, že si od nás zaslouží to nejlepší tím, že žádá to nejlepší, co máme pro liturgii, ať už umění, výzdoba, nebo hudba. Zaslouží si to, protože je Bůh.
 
-**Pro lajky**, musíme být štědří s našimi dary, abychom učinili církev a liturgii krásnou pro pána. This could mean offering to pay for organ cleaning, chapel bells, or dignified religious art. Může to také znamenat pomoci našim synům vidět krásy mše a inspirovat je, aby sloužili důstojně u oltáře Páně.
+**Pro lajky**, musíme být štědří s našimi dary, abychom učinili církev a liturgii krásnou pro pána. Může to být formou příspěvku na čištění varhan, kostelní zvony nebo důstojné náboženské umění. Může to také znamenat pomoci našim synům vidět krásy mše a inspirovat je, aby sloužili důstojně u oltáře Páně.
 
 **Pro kněze a ty, kteří pracují jako liturgové nebo hudebníci**, je odpovědnost ještě větší. Bude vašim úkolem studovat liturgii a pochopit, co církev předepisuje pro liturgický prostor a pro liturgickou hudbu, a pak to, co jste se naučili uvést do praxe s radostí k vůli páně. Uctívání Boha je příliš důležité na to, aby bylo uspořádáno podle našich osobních preferencí. Zaslouží si to nejlepší, co může jeho lid nabídnout, jak předepisují církevní hodnostáři.
 
