@@ -4,7 +4,7 @@
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
 
-V tomto týdnu v Písmu ukazují Izraelité lidskou slabost. Ukazují, jak snadné je vrátit se zpět do starých zvyků. Odhalují nám potřebu aktivně a neustále následovat Pána. Léviovci dokazují, že odvážná věrnost Pánu je možná i ve světě bezbožnosti. Pán zjevuje něco většího než jen jedno. Ukazuje Izraelcům a nám, že vždy zůstane věrný svému lidu, i když (my) selžeme. Tento týden pozorně naslouchej Slovu v Písmu. Poslouchej, když vám Bůh odhaluje svou věrnou lásku.
+V tomto týdnu v Písmu ukazují Izraelité lidskou slabost. Ukazují, jak snadné je vrátit se zpět do starých zvyků. Odhalují nám potřebu aktivně a neustále následovat Pána. Léviovci dokazují, že odvážná věrnost Pánu je možná i ve světě bezbožnosti. Pán nám ukazuje ještě něco většího. Ukazuje Izraelcům a nám, že vždy zůstane věrný svému lidu, i když (my) selžeme. Tento týden pozorně naslouchej Slovu v Písmu. Poslouchej, když vám Bůh odhaluje svou věrnou lásku.
 
 Akční body:
 1. Vzdej se kontroly. Stejně jako mnoho Izraelců ztratilo trpělivost s Mojžíšem, když zůstal čtyřicet dní na vrcholu Sinaje, tak můžeš nemít trpělivost s některými aspekty tohoto duchovního cvičení. Možná jsi ztratil trpělivost s modlitbou (myslel si, že Pán s tebou nemluví), s obtížemi asketických praktik nebo s tvým bratrstvem. A právě to tě přivedlo do 11. týdne. Buď trpěliví, důvěřuj a nadále se vzdávej kontroly. Bůh přinese svobodu, kterou hledáš.
