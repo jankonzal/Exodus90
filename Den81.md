@@ -17,7 +17,7 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 
 Otče náš...
 
-#### Exodus 35:1–12, 37:1–2, 10, 17, 25, 29, 38:1–2
+#### Exodus 35:1–12, 37:1–2, 10, 17, 25, 29, 38:1–2 (ČEP)
 *Mojžíš shromáždil celou pospolitost Izraelců a řekl jim: „Hospodin přikázal, abyste dodržovali toto: Šest dní se bude pracovat, ale sedmého dne budete mít slavnost odpočinutí, Hospodinův svatý den odpočinku; kdo by v ten den dělal nějakou práci, zemře. V den odpočinku nerozděláte oheň v žádném svém obydlí.“ Mojžíš řekl celé pospolitosti Izraelců: „Toto přikázal Hospodin: Vyberte mezi sebou pro Hospodina oběť pozdvihování. Každý ať ze srdce dobrovolně přinese jako Hospodinovu oběť pozdvihování zlato, stříbro a měď, látku purpurově fialovou, nachovou nebo karmínovou, jemné plátno, kozí srst, načerveno zbarvené beraní kůže, tachaší kůže, akáciové dřevo, olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek, karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. A každý, kdo je mezi vámi dovedný, ať přijde a dělá vše, co Hospodin přikázal: příbytek, jeho stan a přikrývku, spony a desky, svlaky, sloupy a patky, schránu a tyče k ní, příkrov a vnitřní oponu,*
 
 *Besaleel zhotovil schránu z akáciového dřeva dva a půl lokte dlouhou, jeden a půl lokte širokou a jeden a půl lokte vysokou. bložil ji uvnitř i zvnějšku čistým zlatem a opatřil ji dokola zlatou obrubou.*
