@@ -17,7 +17,7 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 
 Otče náš...
 
-#### Exodus 34:10–21, 27–28 (ČEP)
+#### Exodus 34:29-35 (ČEP)
 *Když pak Mojžíš sestupoval z hory Sínaje, měl při sestupu z hory desky svědectví v rukou. Mojžíš nevěděl, že mu od rozhovoru s Hospodinem září kůže na tváři. Když Áron a všichni Izraelci uviděli, jak Mojžíšovi září kůže na tváři, báli se k němu přistoupit. Ale Mojžíš je zavolal, i vrátili se k němu Áron a všichni předáci pospolitosti a Mojžíš k nim promluvil. Potom přistoupili všichni Izraelci a on jim přikázal všechno, o čem s ním Hospodin mluvil na hoře Sínaji. Když k nim Mojžíš přestal mluvit, dal si na tvář závoj. Kdykoli Mojžíš vstupoval před Hospodina, aby s ním mluvil, odkládal závoj, dokud nevyšel. Pak vycházel, aby k Izraelcům mluvil, co mu bylo přikázáno. Izraelci spatřili Mojžíšovu tvář a viděli , jak mu kůže na tváři září. Proto si Mojžíš dával na tvář závoj, pokud nešel mluvit s Hospodinem.*
 
 #### Zamyšlení:
