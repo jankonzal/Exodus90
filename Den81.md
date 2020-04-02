@@ -20,7 +20,7 @@ Otče náš...
 #### Exodus 35:1–12, 37:1–2, 10, 17, 25, 29, 38:1–2 (ČEP)
 *Mojžíš shromáždil celou pospolitost Izraelců a řekl jim: „Hospodin přikázal, abyste dodržovali toto: Šest dní se bude pracovat, ale sedmého dne budete mít slavnost odpočinutí, Hospodinův svatý den odpočinku; kdo by v ten den dělal nějakou práci, zemře. V den odpočinku nerozděláte oheň v žádném svém obydlí.“ Mojžíš řekl celé pospolitosti Izraelců: „Toto přikázal Hospodin: Vyberte mezi sebou pro Hospodina oběť pozdvihování. Každý ať ze srdce dobrovolně přinese jako Hospodinovu oběť pozdvihování zlato, stříbro a měď, látku purpurově fialovou, nachovou nebo karmínovou, jemné plátno, kozí srst, načerveno zbarvené beraní kůže, tachaší kůže, akáciové dřevo, olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek, karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. A každý, kdo je mezi vámi dovedný, ať přijde a dělá vše, co Hospodin přikázal: příbytek, jeho stan a přikrývku, spony a desky, svlaky, sloupy a patky, schránu a tyče k ní, příkrov a vnitřní oponu,*
 
-*Besaleel zhotovil schránu z akáciového dřeva dva a půl lokte dlouhou, jeden a půl lokte širokou a jeden a půl lokte vysokou. bložil ji uvnitř i zvnějšku čistým zlatem a opatřil ji dokola zlatou obrubou.*
+*Besaleel zhotovil schránu z akáciového dřeva dva a půl lokte dlouhou, jeden a půl lokte širokou a jeden a půl lokte vysokou. Obložil ji uvnitř i zvnějšku čistým zlatem a opatřil ji dokola zlatou obrubou.*
 
 *Zhotovil stůl z akáciového dřeva dva lokte dlouhý, jeden loket široký a jeden a půl lokte vysoký.*
 
@@ -39,6 +39,6 @@ Opakování ukazuje, jak důležité je řádné uctívání, pokud má být Izr
 
 Mnoho moderních lidí se dívá na baziliky a katedrály pouze jako na budovy s architektonickým zájmem a někdy jako nic jiného než muzea. Církev je však pokračováním původního svatostánku, stejně jako liturgie je naplněním obřadů oběti, které Bůh dal Izraelitům. Baziliky, katedrály a farní kostely nám dávají viditelnou připomínku našeho každodenního povolání k modlitbě, askezi a bratrství a umožňují nám sdílet se v nebeském životě ještě bohatěji, než bylo dáno Izraelcům ve svatostánku.
 
-Když projíždíte okolo kostela na cestě do práce, cítíte volání k modlitbě? Když při chůzi ze mše zahlédneě kříž, jsi odhodlaný, se po zbytek týdne nabídli jako oběť pro svou rodinu? Když vstoupíš do kostela daleko od tvého domova a vy se podíváte na věčné světlo, což znamená Kristovu skutečnou přítomnost, uvědomuješ si, že nebeský život se tam prolíná do našeho světa?
+Když projíždíŠ okolo kostela na cestě do práce, cítíš volání k modlitbě? Když při chůzi ze mše zahlédneš kříž, jsi odhodlaný, se po zbytek týdne nabídnout jako oběť pro svou rodinu? Když vstoupíš do kostela daleko od tvého domova a podíváš se na věčné světlo, což znamená Kristovu skutečnou přítomnost, uvědomuješ si, že nebeský život se tam prolíná do našeho světa?
 
 Prostřednictvím církevních budov a jejich různých detailů tě Pán volá, když každý den svolával Izraelity. Veď dnes dialog s Pánem  o tom, jak tě jeho přítomnost ve viditelných církevních budovách může každý den volat k hlubšímu pocitu života neustále směřovaného ke Kristu.
