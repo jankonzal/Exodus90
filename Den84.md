@@ -22,7 +22,7 @@ Otče náš...
 #### Zamyšlení:
 Na začátku této pasáže Bůh přikazuje postavit svatostánek „První den prvního měsíce“ (Exodus 40: 2). Proč je tak striktní ohledně času? Protože to bylo první den prvního měsíce, kdy Bůh stvořil svět. Svatostánek je obrazem celého Světa, a proto je třeba jej postavit ve stejný den, kdy začalo stvoření. Boží plán zahrnuje pečlivé načasování, dokonce i na vyčlenění jednoho konkrétního dne.
 
-Když tě Bůh žádá, abys udělal konkrétní věc v určitém čase, je to proto, že má plán pro tebe a ty důležité ve tvém životě. Možná neznáš celý obrázek, ale můžeš věřit, že plán je dobrý. To neznamená, že to nebude náročné ani nepohodlné. Ale vždy to bude dobré, dokonce i v přesném načasování. Toto duchovní cvičení je toho příkladem. Bůh tě pozval do náročného a nepříjemného času, přesto jsi pravděpodobně schopný vidět výsledky, i když ti celý plán ještě není jasný.
+Když tě Bůh žádá, abys udělal konkrétní věc v určitém čase, je to proto, že má plán pro tebe a pro ty důležité ve tvém životě. Možná neznáš celý obrz, ale můžeš věřit, že plán je dobrý. To neznamená, že to nebude náročné ani nepohodlné. Ale vždy to bude dobré, dokonce i v přesném načasování. Toto duchovní cvičení je toho příkladem. Bůh tě pozval do náročného a nepříjemného času, přest pravděpodobně vidíš výsledky, i když ti celý plán ještě není jasný.
 
 Je téměř nemožné držet se Božího plánu, pokud nedáš Pánu čas každý den. Bez modlitby, bez božího plánu, jsi odkázán na vlastní plány a vlastní zdroje pro tebe a tvoji rodinu. Jak ti to v minulosti vyšlo?
 
