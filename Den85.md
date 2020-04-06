@@ -4,10 +4,10 @@
 
 Jsi na východním okraji zaslíbené země.
 
-I po tolika milostech Izraelité stále pochybují o Bohu. V důsledku toho jsou spravedlivě vyloučeni ze zaslíbené země. Tvoje budoucnost by měla být naprosto jiná. V posledních třech měsících si vedl dobře, spoléhal jsi na Boha více než kdy předtím. Dozvěděli jsi se něco o tom, co to znamená vzít každý den svůj kříž a následovat Krista (viz Lukáš 9:23). Prostřednictvím sdílení Kristova podrobného plánu tě Pán pověřil pochopením křesťanského života nad rámec života mnoha lidí. Kristův plán je nyní ve tvých rukou. Můžeš si vybrat, co s tím uděláš, ale nejsi osvobozen od důsledků svého rozhodnutí. Žij to, přijmi to a důsledek bude větší svoboda v den 91.
+I po tolika milostech Izraelité stále pochybují o Bohu. V důsledku toho jsou spravedlivě vyloučeni ze zaslíbené země. Tvoje budoucnost by měla být naprosto jiná. V posledních třech měsících jsi si vedl dobře, spoléhal jsi na Boha více než kdy předtím. Dozvěděl jsi se něco o tom, co to znamená vzít každý den svůj kříž a následovat Krista (viz Lukáš 9:23). Prostřednictvím sdílení Kristova podrobného plánu tě Pán pověřil pochopením křesťanského života nad rámec života mnoha lidí. Kristův plán je nyní ve tvých rukou. Můžeš si vybrat, co s tím uděláš, ale nejsi osvobozen od důsledků svého rozhodnutí. Žij to, přijmi to a důsledek bude větší svoboda v den 91.
 
 Akční body:
-1. Přemýšlej o své tříměsíční denní modlitbě. Před svým odchodem jsi možná neměl každodenní modlitební rutinu. Podívej se, jak díky tomu tvůj vztah s Bohem vzrostl. Jaký je tvůj plán modlitby v den 91?  Nemáš-li plán, že se budeš každodenně modlit, nezvládneš se modlit denně.  Napiš si plán.
+1. Přemýšlej o své tříměsíční denní modlitbě. Před svým odchodem jsi možná neměl každodenní modlitební rutinu. Podívej se, jak díky tomu tvůj vztah s Bohem vyrostl. Jaký je tvůj plán modlitby v den 91?  Nemáš-li plán, že se budeš každodenně modlit, nezvládneš se modlit denně.  Napiš si plán.
 
 2. Vezmi na vědomí svoji trvalou potřebu Boha. Pokud přestaneš prosit Boha o milosti a milosrdenství a přestaneš-li denně uznávat svou potřebu Boha, ztratíš pravděpodobně svou svobodu. Nedopusť, aby se to stalo tobě nebo tvým bratrům - zejména tvojí kotvě.
 
@@ -26,7 +26,7 @@ Dospěli jsme k závěru knihy Exodus. Skvělá práce. Kniha Exodus nekončí v
 
 *Mojžíš nemohl přistoupit ke stanu setkávání, neboť nad ním přebýval oblak a příbytek naplňovala Hospodinova sláva.* (Exodus 40:35)
 
-Mojžíš není přizván do Boží přítomnosti. To je změna oproti Mojžíšovým rozhovorům s Bohem před stavbou svatostánku. Vzpomeňte si na to, když Mojžíšova tvář zářila díky tomu, že byl v Boží přítomnosti na hoře Sinaj. Nyní, když mají Izraelci místo pro odčinění za své hříchy (svatostánek), musí prokázat svou touhu znovu získat správný vztah s Bohem. Dokud nebudou Izraelité připraveni, bude Mojžíš trpět stejným oddělením od Boha, jaké si Izraelité vybrali pro své hříchy.  
+Mojžíš není přizván do Boží přítomnosti. To je změna oproti Mojžíšovým rozhovorům s Bohem před stavbou svatostánku. Vzpomeň si na to, když Mojžíšova tvář zářila díky tomu, že byl v Boží přítomnosti na hoře Sinaj. Nyní, když mají Izraelci místo pro odčinění za své hříchy (svatostánek), musí prokázat svou touhu znovu získat správný vztah s Bohem. Dokud nebudou Izraelité připraveni, bude Mojžíš trpět stejným oddělením od Boha, jaké si Izraelité vybrali pro své hříchy.  
 
 Bůh ve svém milosrdenství poskytuje Mojžíšovi a Izraelcům plán pro cestu zpět ke správnému vztahu s ním. Otec to dělá pro ně a pro nás tím, že poskytuje soubor specifických disciplín, kterými se podle něj mají obracet zase k němu.
 
