@@ -29,7 +29,7 @@ Izraelci se konečně dostali na okraj zaslíbené země. Země je přesně tak,
 
 Dnes možná zažíváš svobodu úplně novým způsobem. Pokud ano, děkuj Bohu za tuto milost. Stejně jako byla zaslíbená země naplněna zastrašujícími muži, díky nimž se Izraelité před nimi vzdali jako kobylky, tak i dny a roky před tebou budou naplněny zkouškami a odporem - Ježíš to již ví (viz Matouš 10: 22-25) . Získání svobody a vztahu s Bohem neznamená konec pro tebe a tvé bratrství; spíše označuje začátek.
 
-Na druhou stranu možná ještě nemáte velkou svobodu. Možná jsi narazil na poušť. Skočil jsi na potěšení, nechal se unést pokušením, nebo upadl do staré neřesti. Znamená to, že se nemůžeš dostat do zaslíbené země?
+Na druhou stranu možná ještě nemáš velkou svobodu. Možná jsi narazil na poušť. Skočil jsi na potěšení, nechal se unést pokušením, nebo upadl do staré neřesti. Znamená to, že se nemůžeš dostat do zaslíbené země?
 
 Podívej se na Boží slovo. Uprostřed jejich exodu Izraelité padli do hříchů. Vrátili se k uctívání idolů a měli orgie (Exodus 32: 1–6). Odmítl Bůh tento lid a vzdal se jeho vedení do zaslíbené země? Ne. Dal Izraelcům jejich tolik potřebný plán, Zákon, který je zachován v knize Leviticus. Bylo to spravedlivé a milosrdné. Tento plán by vedl k odpuštění, sjednocení s Bohem a dále do zaslíbené země, pokud by Izraelité činili pokání a rozhodli se ho přijmout.
 
