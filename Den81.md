@@ -18,17 +18,17 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš...
 
 #### Exodus 35:1–12, 37:1–2, 10, 17, 25, 29, 38:1–2 (ČEP)
-*Mojžíš shromáždil celou pospolitost Izraelců a řekl jim: „Hospodin přikázal, abyste dodržovali toto: Šest dní se bude pracovat, ale sedmého dne budete mít slavnost odpočinutí, Hospodinův svatý den odpočinku; kdo by v ten den dělal nějakou práci, zemře. V den odpočinku nerozděláte oheň v žádném svém obydlí.“ Mojžíš řekl celé pospolitosti Izraelců: „Toto přikázal Hospodin: Vyberte mezi sebou pro Hospodina oběť pozdvihování. Každý ať ze srdce dobrovolně přinese jako Hospodinovu oběť pozdvihování zlato, stříbro a měď, látku purpurově fialovou, nachovou nebo karmínovou, jemné plátno, kozí srst, načerveno zbarvené beraní kůže, tachaší kůže, akáciové dřevo, olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek, karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. A každý, kdo je mezi vámi dovedný, ať přijde a dělá vše, co Hospodin přikázal: příbytek, jeho stan a přikrývku, spony a desky, svlaky, sloupy a patky, schránu a tyče k ní, příkrov a vnitřní oponu,*
+*Mojžíš shromáždil celou pospolitost Izraelců a řekl jim: „Hospodin přikázal, abyste dodržovali toto: Šest dní se bude pracovat, ale sedmého dne budete mít slavnost odpočinutí, Hospodinův svatý den odpočinku; kdo by v ten den dělal nějakou práci, zemře. V den odpočinku nerozděláte oheň v žádném svém obydlí.“ Mojžíš řekl celé pospolitosti Izraelců: „Toto přikázal Hospodin: Vyberte mezi sebou pro Hospodina oběť pozdvihování. Každý ať ze srdce dobrovolně přinese jako Hospodinovu oběť pozdvihování zlato, stříbro a měď, látku purpurově fialovou, nachovou nebo karmínovou, jemné plátno, kozí srst, načerveno zbarvené beraní kůže, tachaší kůže, akáciové dřevo, olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek, karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. A každý, kdo je mezi vámi dovedný, ať přijde a dělá vše, co Hospodin přikázal: příbytek, jeho stan a přikrývku, spony a desky, svlaky, sloupy a patky, schránu a tyče k ní, příkrov a vnitřní oponu,...*
 
-*Besaleel zhotovil schránu z akáciového dřeva dva a půl lokte dlouhou, jeden a půl lokte širokou a jeden a půl lokte vysokou. Obložil ji uvnitř i zvnějšku čistým zlatem a opatřil ji dokola zlatou obrubou.*
+*Besaleel zhotovil schránu z akáciového dřeva dva a půl lokte dlouhou, jeden a půl lokte širokou a jeden a půl lokte vysokou. Obložil ji uvnitř i zvnějšku čistým zlatem a opatřil ji dokola zlatou obrubou...*
 
-*Zhotovil stůl z akáciového dřeva dva lokte dlouhý, jeden loket široký a jeden a půl lokte vysoký.*
+*Zhotovil stůl z akáciového dřeva dva lokte dlouhý, jeden loket široký a jeden a půl lokte vysoký...*
 
-*Zhotovil svícen z čistého zlata. Svícen měl vytepaný dřík a prut; jeho kalichy, číšky a květy byly s ním zhotoveny z jednoho kusu.*
+*Zhotovil svícen z čistého zlata. Svícen měl vytepaný dřík a prut; jeho kalichy, číšky a květy byly s ním zhotoveny z jednoho kusu...*
 
-*Zhotovil kadidlový oltář z akáciového dřeva, čtyřhranný, loket dlouhý, loket široký a dva lokte vysoký; jeho rohy byly z jednoho kusu s ním.*
+*Zhotovil kadidlový oltář z akáciového dřeva, čtyřhranný, loket dlouhý, loket široký a dva lokte vysoký; jeho rohy byly z jednoho kusu s ním...*
 
-*Připravil také olej svatého pomazání a kadidlo z vonných látek, čisté, odborně smísené.*
+*Připravil také olej svatého pomazání a kadidlo z vonných látek, čisté, odborně smísené...*
 
 *Zhotovil oltář pro zápalnou oběť z akáciového dřeva, čtyřhranný, pět loket dlouhý, pět loket široký a tři lokte vysoký. Jeho čtyři úhly opatřil rohy; ty s ním byly zhotoveny z jednoho kusu. Potáhl jej bronzem.*
 

@@ -17,11 +17,11 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 
 Otče náš...
 #### Numeri 1:1–4,17–19; 10:11–12; 11:4–6 (ČEP)
-*Hospodin promluvil k Mojžíšovi na Sínajské poušti ve stanu setkávání prvního dne druhého měsíce ve druhém roce po jejich vyjití z egyptské země. „Pořiďte soupis celé pospolitosti Izraelců podle čeledí otcovských rodů. Ve jmenném seznamu bude každý jednotlivec mužského pohlaví od dvacetiletých výše, každý, kdo je v Izraeli schopen vycházet do boje. Ty a Áron je spočítáte po oddílech. Za každé pokolení bude s vámi jeden muž, vždy představitel otcovského rodu.*
+*Hospodin promluvil k Mojžíšovi na Sínajské poušti ve stanu setkávání prvního dne druhého měsíce ve druhém roce po jejich vyjití z egyptské země. „Pořiďte soupis celé pospolitosti Izraelců podle čeledí otcovských rodů. Ve jmenném seznamu bude každý jednotlivec mužského pohlaví od dvacetiletých výše, každý, kdo je v Izraeli schopen vycházet do boje. Ty a Áron je spočítáte po oddílech. Za každé pokolení bude s vámi jeden muž, vždy představitel otcovského rodu...*
 
-*Mojžíš a Áron přibrali tyto muže uvedené jménem. Prvního dne druhého měsíce svolali celou pospolitost, aby všichni hlásili svůj původ podle čeledí otcovských rodů; do jmenného seznamu byl zapsán každý jednotlivec od dvacetiletých výše, jak přikázal Hospodin Mojžíšovi. Spočítal je na Sínajské poušti.*
+*Mojžíš a Áron přibrali tyto muže uvedené jménem. Prvního dne druhého měsíce svolali celou pospolitost, aby všichni hlásili svůj původ podle čeledí otcovských rodů; do jmenného seznamu byl zapsán každý jednotlivec od dvacetiletých výše, jak přikázal Hospodin Mojžíšovi. Spočítal je na Sínajské poušti...*
 
-*Ve druhém roce, dvacátého dne druhého měsíce, se vznesl oblak od příbytku svědectví. I táhli Izraelci ze Sínajské pouště dál, po jednotlivých stanovištích, až se oblak pozdržel na poušti Páranské.*
+*Ve druhém roce, dvacátého dne druhého měsíce, se vznesl oblak od příbytku svědectví. I táhli Izraelci ze Sínajské pouště dál, po jednotlivých stanovištích, až se oblak pozdržel na poušti Páranské...*
 
 *Chátru přimíšenou mezi nimi popadla žádostivost. Rovněž Izraelci začali znovu s pláčem volat: „Kdo nám dá najíst masa? Vzpomínáme na ryby, které jsme měli v Egyptě k jídlu zadarmo, na okurky a melouny, na pór, cibuli a česnek. Jsme už celí seschlí, nevidíme nic jiného než tu manu.“*
 

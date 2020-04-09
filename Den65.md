@@ -18,7 +18,7 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš...
 
 #### Exodus 27:9–10, 17–21 (ČEP)
-*K příbytku uděláš také nádvoří. Na jižní, pravé straně nádvoří budou zástěny z jemně tkaného plátna, pro jednu stranu dlouhé sto loket. Bude tam dvacet sloupů na dvaceti bronzových patkách; háčky ke sloupům a příčné tyče budou stříbrné.*
+*K příbytku uděláš také nádvoří. Na jižní, pravé straně nádvoří budou zástěny z jemně tkaného plátna, pro jednu stranu dlouhé sto loket. Bude tam dvacet sloupů na dvaceti bronzových patkách; háčky ke sloupům a příčné tyče budou stříbrné...*
 
 *Všechny sloupy na nádvoří budou dokola spojeny stříbrnými příčnými tyčemi; jejich háčky budou stříbrné a patky bronzové. Délka nádvoří bude sto loket, šířka padesát a výška zástěn pět loket; budou z jemně tkaného plátna; patky sloupů budou bronzové. Všechno náčiní příbytku pro veškerou bohoslužbu v něm i všechny jeho kolíky a všechny kolíky pro nádvoří budou z bronzu. Ty pak přikážeš Izraelcům, aby ti přinášeli čistý vytlačený olivový olej ke svícení, aby bylo možno udržovat ustavičně svítící kahan. Ve stanu setkávání před oponou, která bude zakrývat svědectví, bude o něj pečovat Áron se svými syny před Hospodinem od večera do rána. To je mezi Izraelci provždy platné nařízení pro všechna pokolení.*
 
