@@ -23,7 +23,7 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 
 Otče náš...
 
-#### Exodus 1:1–7 (ČEP)
+#### Exodus 1:8–14 (ČEP)
 *V Egyptě však nastoupil nový král, který o Josefovi nevěděl. Ten řekl svému lidu: „Hle, izraelský lid je početnější a zdatnější než my. Musíme s ním nakládat moudře, aby se nerozmnožil. Kdyby došlo k válce, jistě by se připojil k těm, kdo nás nenávidí, bojoval by proti nám a odtáhl by ze země.“ Ustanovili tedy nad ním dráby, aby jej ujařmovali robotou. Musel stavět faraónovi města pro sklady, Pitom a Raamses. Avšak jakkoli jej ujařmovali, množil se a rozmáhal dále, takže měli z Izraelců hrůzu. Proto začali Egypťané Izraelce surově zotročovat. Ztrpčovali jim život tvrdou otročinou při výrobě cihel a všelijakou prací na poli. Všechnu otročinu, kterou na ně uvalili, jim ještě ztěžovali surovostí.*
 
 #### Zamyšlení:
