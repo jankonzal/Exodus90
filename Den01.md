@@ -7,7 +7,7 @@ Jsi v Egyptě.
 Tento týden se ocitneš s Izraelity v Egyptě. Prostředí se v posledních staletích stalo nepřátelským a utlačovatelským, ale slepota k otroctví tě udržovala v nevědomosti.  Naštěstí byl Mojžíš pověřen, aby ti hlásal pravdu. Jsi ochoten přijmout, že Egypt tě zotročil? Ano bude vyžadovat úplnou změnu tvého způsobu života.
 
 Akční body:
-1. Vzdej se kontroly. Disciplíny Exodu 90 ti dávají příležitost vzdát se kontroly nad svým životem, která vede pouze ke zvládání. Co jsi udělala v zemi, ve které žiješ, abys zvládl svou situaci? Kam jsi se obrátil o pomoc? Sport, práce, pornografie? Svoboda je mnohem lepší než zvládání. Cesta ke svobodě, i když je těžká (viz Matouš 7:14), je pro tebe otevřená, pokud jsi ochoten opustit Egypt a následovat Boha.
+1. Vzdej se kontroly. Disciplíny Exodu 90 ti dávají příležitost vzdát se kontroly nad svým životem, která vede pouze ke zvládání. Co jsi udělal v zemi, ve které žiješ, abys zvládl svou situaci? Kam jsi se obrátil o pomoc? Sport, práce, pornografie? Svoboda je mnohem lepší než zvládání. Cesta ke svobodě, i když je těžká (viz Matouš 7:14), je pro tebe otevřená, pokud jsi ochoten opustit Egypt a následovat Boha.
 
 2. Odevzdej se svému bratrstvu. Budeš souzen a zkoušen. Budeš potřebovat své bratrstvo a oni budou potřebovat tebe. Týdenní schůzky jsou nutností. (Další informace o důležitosti vašeho bratrstva najdete v oddíle o bratrství v Pilířích v Polním průvodci exodem 90.)
 
