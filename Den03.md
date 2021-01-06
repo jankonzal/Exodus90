@@ -21,20 +21,20 @@ Modli se, aby Pán vysvobodil tebe i tvoje bratrstvo.
 
 Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 
-Ve jménu Otce i Syna i Ducha svatého:
+*Ve jménu Otce i Syna i Ducha svatého:*
 
-Otče náš, jenž jsi na nebesích,
-posvěť se jméno tvé.
-Přijď království tvé.
-Buď vůle tvá jako v nebi, tak i na zemi.
-Chléb náš vezdejší dej nám dnes.
-A odpusť nám naše viny,
-jako i my odpouštíme našim viníkům.
-A neuveď nás v pokušení,
-ale zbav nás od zlého.
-Amen.
+*Otče náš, jenž jsi na nebesích,*
+*posvěť se jméno tvé.*
+*Přijď království tvé.*
+*Buď vůle tvá jako v nebi, tak i na zemi.*
+*Chléb náš vezdejší dej nám dnes.*
+*A odpusť nám naše viny,*
+*jako i my odpouštíme našim viníkům.*
+*A neuveď nás v pokušení,*
+*ale zbav nás od zlého.*
+*Amen.*
 
-Ve jménu Otce i Syna i Ducha svatého. Amen.
+*Ve jménu Otce i Syna i Ducha svatého. Amen.*
 
 #### Exodus 1:15–22 (ČEP)
 *Egyptský král poručil hebrejským porodním bábám, z nichž jedna se jmenovala Šifra a druhá Púa: „Když budete pomáhat Hebrejkám při porodu a při slehnutí zjistíte, že to je syn, usmrťte jej; bude-li to dcera, aťsi je naživu. “Avšak porodní báby se bály Boha a rozkazem egyptského krále se neřídily. Nechávaly hochy naživu. Egyptský král si porodní báby předvolal a řekl jim: „Co to děláte, že necháváte hochy naživu?“ Porodní báby faraónovi odvětily: „Hebrejky nejsou jako ženy egyptské; jsou plné života. Porodí dříve, než k nim porodní bába přijde.“ Bůh pak těm porodním bábám prokazoval dobrodiní a lid se množil a byl velmi zdatný. Protože se porodní báby bály Boha, požehnal jejich domům. Ale farao všemu svému lidu rozkázal: „Každého syna, který se jim narodí, hoďte do Nilu; každou dceru nechte naživu.“*
