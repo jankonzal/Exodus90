@@ -4,7 +4,7 @@
 
 Jsi v Egyptě.
 
-Izraelité nejsou ještě zdaleka svobodní. Mojžíšova a Áronova poslušnost Bohu jim život jen ztížila a jejich zotročení bylo mnohem patrnější než kdykoli předtím. V tomto bodě našeho exodu se naše zotročení také stalo zřejmějším. Disciplíny mají větší vazby, než jsme si mysleli. Naše rutina se formuje, ale zdaleka nejsme svobodní. Proč si svou poslušností k Bohu ztěžujeme život? Nebylo by jednodušší opustit toto cvičení a zůstat věčně pohodlným otrokem? To je úvaha, které Izraelité čelí tento týden.
+Izraelité nejsou ještě zdaleka svobodní. Mojžíšova a Áronova poslušnost Bohu jim život jen ztížila a jejich zotročení bylo mnohem patrnější než kdykoli předtím. V tomto bodě našeho exodu se naše zotročení také stalo zřejmějším. Discipíny jsou těžší, než jsme si mysleli. Naše rutina se formuje, ale zdaleka nejsme svobodní. Proč si svou poslušností k Bohu ztěžujeme život? Nebylo by jednodušší opustit toto cvičení a zůstat věčně pohodlným otrokem? To je úvaha, které Izraelité čelí tento týden.
 
 Akční body:
 1. Vykonej dobrou zpověď. Pokusit se uskutečnit Exodus 90 bez předchozí zpovědi je jako pokus o výstup na vrchol Mount Rainier se 40 kg kamení v batohu *(sopka nedaleko Seattle s vrcholem v 4 392 m n. m.)* Možné, ale hloupé. Kříž, který musíte denně vzít, je dostatečně těžký. Nechť Pán vyjme kameny z tvého batohu. Jdi ke zpovědi, abys mohl tuto horu zdolat a skutečně být svobodný.
