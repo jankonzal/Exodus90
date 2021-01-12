@@ -4,7 +4,7 @@
 
 Jsi v Egyptě.
 
-Disciplíny jsou těžší, než jsme si myslely. Nebylo by jednodušší s tímto cvičením skončit a zůstat věčně pohodlným otrokem?
+Disciplíny jsou těžší, než jsme si mysleli. Nebylo by jednodušší s tímto cvičením skončit a zůstat věčně pohodlným otrokem?
 
 Akční body:
 1. Vykonej dobrou zpověď.
