@@ -4,7 +4,7 @@
 
 Jsi v Egyptě.
 
-Disciplíny mají větší vazby, než jsme si myslely. Nebylo by jednodušší s tímto cvičením skončit a zůstat věčně pohodlným otrokem?
+Disciplíny jsou těžší, než jsme si myslely. Nebylo by jednodušší s tímto cvičením skončit a zůstat věčně pohodlným otrokem?
 
 Akční body:
 1. Vykonej dobrou zpověď.
@@ -32,6 +32,6 @@ Mojžíš zvažuje závažnost poslání, které má před sebou, a věří, že
 
 Mojžíš postrádá ctnost naděje. Rozpoznat vlastní nedostatky není hřích, ale Mojžíš si myslí, že Pán nebude schopen napravit to, co Mojžíš postrádá. To je ten problém. Mojžíš se musí naučit, že má-li vést Boží lid a dosáhnout nemožného, musí se zcela oddat Bohu.
 
-Těchto devadesát dní Exodu je pro tebe skvělou zkouškou. Učte se od Mojžíše: toto cvičení nezvládneš, pokud svou naději skutečně nevložíš v Boha. Ve strachu často převezmeme kontrolu z Boží ruky a pokusíme se ji ovládnout sami. Když to uděláme, i když uspějeme, děláme to za velkou cenu pro sebe a někdy i pro ty, které milujeme.
+Těchto devadesát dní Exodu je pro tebe skvělou zkouškou. Uč se od Mojžíše: toto cvičení nezvládneš, pokud svou naději skutečně nevložíš v Boha. Ve strachu často převezmeme kontrolu z Boží ruky a pokusíme se ji ovládnout sami. Když to uděláme, i když uspějeme, děláme to za velkou cenu pro sebe a někdy i pro ty, které milujeme.
 
-Do toho, přiznej si fakt, že se nemůžeš jít ke svobodě sám. Podívej se na kříž, v naději v Toho, kdo porazil smrt. Dovede tě ke svobodě. On jediný tě vysvobodí. Naděje je v něm.
+Do toho, přiznej si fakt, že nemůžeš jít ke svobodě sám. Podívej se na kříž, v naději v Toho, kdo porazil smrt. Dovede tě ke svobodě. On jediný tě vysvobodí. Naděje je v něm.
