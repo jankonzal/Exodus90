@@ -4,7 +4,7 @@
 
 Jsi v Egyptě.
 
-Disciplíny mají větší vazby, než jsme si myslely. Nebylo by jednodušší s tímto cvičením skončit a zůstat věčně pohodlným otrokem?
+Disciplíny jsou těžší, než jsme si myslely. Nebylo by jednodušší s tímto cvičením skončit a zůstat věčně pohodlným otrokem?
 
 Akční body:
 1. Vykonej dobrou zpověď.
