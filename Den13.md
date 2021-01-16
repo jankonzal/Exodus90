@@ -32,4 +32,4 @@ Takzvaný „Bůh Starého zákona“ je často obviňován z tvrdosti a krutost
 
 Zamysli se na chvíli nad tím, jaký by byl padlý muž, kdyby neměl žádné slabiny. Pravděpodobně by byl hrdým a povýšeným zvířetem, které by si klamně myslelo, že je schopo ovládnout svůj vlastní život a získat si vlastní svobodu bez pomoci Boha. Tvoje slabosti ti mohou poskytnout důležité informace, pokud jim to dovolíš. Mohou tě naučit potřebě Boha a mohou podněcovat k tomu, abys u něj hledal svou svobodu, místo aby ses spoléhal na své vlastní marné snahy o okamžité uvolnění stresu.
 
-Tvoje slabosti tě přivedly sem. A tvoje slabosti (i když ne tvoje hříchy) mohou být pro tebe Božím darem, pokud jim dovolíš, aby tě naučily potřebě Boha. Poděkuj dnes Pánu za dar slabosti, který tě neustále žene zpět do jeho milující přítomnosti.
+Tvoje slabosti tě přivedly sem. A tvoje slabosti (ne tvoje hříchy) mohou být pro tebe Božím darem, pokud jim dovolíš, aby tě naučily potřebě Boha. Poděkuj dnes Pánu za dar slabosti, který tě neustále žene zpět do jeho milující přítomnosti.
