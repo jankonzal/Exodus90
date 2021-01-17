@@ -24,7 +24,7 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš …
 
 
-#### Exodus 5:22–6:12 (ČEP)
+#### Exodus 6:13-28 (ČEP)
 *Ale Hospodin Mojžíšovi a Áronovi domluvil a dal jim příkazy pro Izraelce i pro faraóna, krále egyptského, aby připravili odchod Izraelců z egyptské země. Toto jsou představitelé otcovských rodů: Rúbenovci, potomci Izraelova prvorozeného: Chanók a Palú, Chesrón a Karmí. To jsou čeledi Rúbenovy. Šimeónovci: Jemúel, Jamín, Ohad, Jakín, Sóchar a Šaul, syn Kenaanky. To jsou čeledi Šimeónovy. Toto jsou jména Léviovců podle jejich rodopisu: Geršón, Kehat a Merarí. Lévi byl živ sto třicet sedm let. Geršónovci: Libní a Šimeí podle svých čeledí. Kehatovci: Amrám, Jishár, Chebrón a Uzíel. Kehat byl živ sto třicet tři léta. Meraríovci: Machlí a Muší. To jsou lévijské čeledi podle jejich rodopisu. Amrám si vzal za ženu Jókebedu, svou tetu. Ta mu porodila Árona a Mojžíše. Amrám byl živ sto třicet sedm let. Synové Jishárovi: Kórach, Nefeg a Zikrí. Synové Uzíelovi: Míšael, Elsáfan a Sitrí. Áron si vzal za ženu Elíšebu, dceru Amínadabovu, sestru Nachšónovu. Ta mu porodila Nádaba, Abíhúa, Eleazara a Ítamara. Synové Kórachovi: Asír, Elkána a Abíasaf. To jsou kórachovské čeledi. Eleazar, syn Áronův, si vzal za ženu jednu z dcer Pútíelových. Ta mu porodila Pinchasa. To jsou představitelé lévijských rodů podle svých čeledí. Z tohoto pokolení pocházejí ten Áron a Mojžíš, k nimž mluvil Hospodin: „Vyveďte z egyptské země Izraelce seřazené po oddílech.“ Oni to byli, kdo mluvili k faraónovi, králi egyptskému, že mají vyvést Izraelce z Egypta. To tedy byli Mojžíš a Áron.*
 
 #### Zamyšlení:
