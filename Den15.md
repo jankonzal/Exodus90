@@ -9,14 +9,14 @@ Jsi v Egyptě.
 Akční body:
 1. Stále zpytuj svědomí. Pomůže ti nejen během těchto devadesáti dnů, ale také ti zajistí svobodu v den 91. Dobře si procvičuj noční ohlednutí za dnem, abys si na něj v 91. dni zvykl. (Nevíš, jak zpytovat svědomí? Viz „Jak provést noční zkoušku“ v Polním průvodci.)
 
-2. Posuď svou denní svatou hodinku upřímně. Čas v tiché modlitbě je pro Exodus rozhodující. Svoboda pochází jen od Boha. Bůh tě dovede tam, kam potřebuješ. Bůh ti připomene svou lásku k tobě a tvou skutečnou hodnotu prvorozeného syna. Ale nic z toho neuslyšíš, pokud si každý den nevyhradíte čas, abys utišil svou mysl a poslouchal.
+2. Posuď upřímně svou denní svatou hodinku. Čas v tiché modlitbě je pro Exodus rozhodující. Svoboda pochází jen od Boha. Bůh tě dovede tam, kam potřebuješ. Bůh ti připomene svou lásku k tobě a tvou skutečnou hodnotu prvorozeného syna. Ale nic z toho neuslyšíš, pokud si každý den nevyhradíš čas, abys utišil svou mysl a poslouchal.
 
-3. Neořezávej rohy. Asketické disciplíny ti jsou již dobře známé. Víš, co je na nich těžké a co snadné. Čím více disciplín znáš, tím snazší bude je obcházet. Chceš zůstat v Egyptě nebo chceš být na svobodě? (Další informace o nezbytnosti askeze nalezneš v „Dary askeze“, v Polním průvodci.)
+3. Neořezávej rohy. Asketické disciplíny ti jsou již dobře známé. Víš, co je na nich těžké a co snadné. Čím více disciplíny znáš, tím snazší bude je obcházet. Chceš zůstat v Egyptě nebo chceš být na svobodě? (Další informace o nezbytnosti askeze nalezneš v „Dary askeze“, v Polním průvodci.)
 
-4. Vzpomeň si své „Proč“. Vzpomeň si, proč jsi začal toto duchovní cvičení. Pokud zapomeneš „proč“, nebudeš pravděpodobně schopen tuto cestu dokončit. Půvab pohodlí je prostě příliš silný na to, aby byl překonán bez hodného účelu. (Ještě jsi nenapsal své „proč“? Vrať se do části Polního průvodce s názvem „Jaké je tvoje proč“ a než budeš pokračovat, napiš si své „proč“)
+4. Vzpomeň si na své „Proč“. Vzpomeň si, proč jsi začal toto duchovní cvičení. Pokud zapomeneš „proč“, nebudeš pravděpodobně schopen tuto cestu dokončit. Půvab pohodlí je prostě příliš silný na to, aby byl překonán bez dobrého účelu. (Ještě jsi nenapsal své „proč“? Vrať se do části Polního průvodce s názvem „Jaké je tvoje proč“ a než budeš pokračovat, napiš si své „proč“)
 
 
-5. Zůstaň radostný. Pokud budeš mít své „proč“ na mysli a dodržovat své každodenní modlitby, tvoje naděje na svobodu nemůže pomoci, ale je vysoká. Exodus je náročný. Naštěstí je to Bůh, kdo přináší svobodu, kterou hledáš. Zůstaň veselí. Morové rány ti ukazují, že Bůh pracuje na tvoji svobodě.
+5. Zůstaň radostný. Pokud budeš mít své „proč“ na mysli a budeš dodržovat svou každodenní modlitbu, tvoje naděje na svobodu ti nepomůže, ale je vysoká. Exodus je náročný. Naštěstí je to Bůh, kdo přináší svobodu, kterou hledáš. Zůstaň veselý. Morové rány ti ukazují, že Bůh pracuje na tvoji svobodě.
 
 Modli se, aby Pán vysvobodil tebe i tvoje bratrstvo.
 
@@ -29,7 +29,7 @@ Otče náš …
 *To bylo tehdy, když Hospodin mluvil k Mojžíšovi v egyptské zemi. Hospodin promluvil k Mojžíšovi: „Já jsem Hospodin! Řekni faraónovi, králi egyptskému, všechno, co k tobě mluvím.“ Mojžíš však Hospodinu namítl: „Nejsem způsobilý mluvit. Jak by mě farao poslechl?“ Hospodin řekl Mojžíšovi: „Pohleď, ustanovil jsem tě, abys byl pro faraóna Bohem, a Áron, tvůj bratr, bude tvým prorokem. Ty mu povíš všechno, co ti přikážu, a Áron, tvůj bratr, bude mluvit s faraónem, aby propustil Izraelce ze své země. Já však zatvrdím faraónovo srdce a učiním v egyptské zemi mnoho svých znamení a zázraků. Farao vás neposlechne, ale já vložím na Egypt svou ruku. Vyvedu zástupy svého lidu, syny Izraele, z egyptské země, ale ji postihnu velkými soudy. Egypťané poznají, že já jsem Hospodin, až vztáhnu svou ruku na Egypt a vyvedu Izraelce z jejich středu.“ Mojžíš a Áron učinili přesně tak, jak jim Hospodin přikázal. Mojžíšovi bylo osmdesát let a Áronovi osmdesát tři léta, když mluvili s faraónem.*
 
 #### Zamyšlení:
-Abych uvedl věci na pravou míru, Bůh žádá Mojžíše, aby čelil nejmocnějšímu vládci na světě v samém srdci jeho království, kde je obklopen svými věrnými poddanými. Tam má Mojžíš říci faraónovi, co má dělat. Možná není překvapením, že se Mojžíš chová tak, jak by se tváří v tvář skličujícímu úkolu: zmenšuje se. Mojžíš vysvětluje Bohu, že je spoutaný jazykem. Bůh nepřijme jeho lidskou výmluvu.
+Abych uvedl věci na pravou míru, Bůh žádá Mojžíše, aby čelil nejmocnějšímu vládci na světě v samém srdci jeho království, kde je obklopen svými věrnými poddanými. Tam má Mojžíš říci faraónovi, co má dělat. Možná není překvapením, že se Mojžíš chová tak, jak by se tváří v tvář skličujícímu úkolu zmenšoval. Mojžíš vysvětluje Bohu, že je spoutaný jazykem. Bůh nepřijme jeho lidskou výmluvu.
 
 Místo toho Bůh, nejvyšší vládce všeho stvoření, říká slabomyslnému Mojžíšovi: „Udělám z tebe před faraonem Boha“ Sv. Ambrož nám říká, že Mojžíšova ctnost daleko převyšuje faraonovu. Mojžíš není určený k životu v přebytku. Jeho vášně mu nevládnou. Je to muž, který, jak říká Ambrož, „[káral] své tělo autoritou, která byla téměř královská.“ Zatímco Mojžíšova důvěra ochabuje, Pán má veškerou důvěru ve svého syna.
 
