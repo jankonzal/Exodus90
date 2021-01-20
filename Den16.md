@@ -26,7 +26,7 @@ Otče náš …
 
 
 #### Exodus 7:8-13 (ČEP)
-*Nato odešel Mojžíš s Áronem od faraóna a Mojžíš úpěnlivě volal k Hospodinu kvůli žábám, kterými faraóna postihl. Hospodin učinil podle Mojžíšovy prosby a žáby v domech, ve dvorcích i na polích pošly. Shrabali je na hromady a kupy a zápach z nich naplnil zemi. Když však farao viděl, že nastala úleva, zůstal v srdci neoblomný a neposlechl je, jak Hospodin předpověděl. Hospodin řekl Mojžíšovi: „Vyzvi Árona: ‚Vztáhni svou hůl a udeř do prachu na zemi!‘ Stanou se z něho po celé egyptské zemi komáři.“ I učinili tak. Áron vztáhl ruku s holí a udeřil do prachu na zemi a na lidech i na dobytku se objevili komáři. Po celé egyptské zemi se ze všeho prachu země stali komáři.*
+*Hospodin dále řekl Mojžíšovi a Áronovi: „Až k vám farao promluví: ‚Prokažte se nějakým zázrakem,‘ řekneš Áronovi: ‚Vezmi svou hůl a hoď ji před faraóna,‘ a stane se drakem.“ Mojžíš s Áronem tedy předstoupili před faraóna a učinili, jak Hospodin přikázal. Áron hodil svou hůl před faraóna i před jeho služebníky a ona se stala drakem. Farao však také povolal mudrce a čaroděje, a egyptští věštci učinili svými kejklemi totéž. Hodili každý svou hůl na zem a ony se staly draky. Ale Áronova hůl jejich hole pohltila. Srdce faraónovo se však zatvrdilo a neposlechl je, jak Hospodin předpověděl.*
 
 #### Zamyšlení:
 V dnešních čteních Faraon přikazuje svým kouzelníkům, aby napodobili znamení, které provedl Áron. Ukazuje se to jako prázdný pokus zmást lid, potlačit moc Božího znamení. Faraon se snaží nabídnout alternativy k cestě Boží. Dnes všude nacházíme moderní „faraóny“, kteří se snaží dělat totéž.
