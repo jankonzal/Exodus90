@@ -1,4 +1,4 @@
-# ŽIJEŠ PRO OSTATNÍ?
+# BŮH POSKYTUJE VŠECHNY POTŘEBNÉ MILOSTI
 
 ### Denní navigace: 3. týden
 
