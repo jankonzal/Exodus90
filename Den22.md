@@ -32,4 +32,4 @@ Po každé z prvních pěti ran faraon zatvrdil své srdce. V této druhé sadě
 
 V knize Exodus Mojžíš vede Izraelity, aby reagovali na Boží činy jako máslo: v průběhu času Boží přítomnost roztavila jejich srdce a oni se rozhodli ctít jeho velikost. Faraon se dívá na stejné Boží skutky a reaguje na něj jako jíl. S pýchou a se zvýšeným odporem k Boží vůli: Boží přítomnost zatvrzuje jeho srdce. Pokud je Bůh skutečně tím, kým říká, že je, pak je faraónova pozice falešná. Pokud je Bůh Bohem, faraon není Bohem. V sázce je celá faraónova identita.
 
-Jak reagujeě na Boží přítomnost, když vstoupíě do své denní svaté hodinky? Je tvé srdce jako máslo, nebo jako hlína? Když klečíš před Božským otcem, cítíš nárůst míru? Nebo ti prostě jeho přítomnost způsobí frustraci, jako by byl jakýmsi soupeřem?
+Jak reaguješ na Boží přítomnost, když vstoupíš do své denní svaté hodinky? Je tvé srdce jako máslo, nebo jako hlína? Když klečíš před Božským otcem, cítíš nárůst míru? Nebo ti prostě jeho přítomnost způsobí frustraci, jako by byl jakýmsi soupeřem?
