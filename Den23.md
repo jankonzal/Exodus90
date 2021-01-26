@@ -4,7 +4,8 @@
 
 Jsi v Egyptě.
 
-Egyptské rány eskalují. Pán nyní využívá k prosazování svých plánů ty, kdo mu odporují. Dokazuje Izraelitům prázdnotu idolů Egypta tím, že tyto modly ničí ranami. Izraelité konečně vidí, že je důležité opustit Egypt a sloužit samotnému Bohu. Když se vydáš do čtvrtého týdne svého exodu, všimni si falešných bohů, které Pán ničí ve tvém životě prostřednictvím disciplín tohoto duchovního cvičení. To ti přinese naději na svobodu a změnu srdce, kterou potřebuješ, abys nechal Egypt za sebou a sloužil Bohu samotnému.
+Izraelité konečně vidí hodnotu opuštění Egypta. Všímej si falešných bohů, které Pán ničí ve tvém životě. Nech tuto realitu, aby ti přinesla změnu v srdci, kterou potřebuješ, abys mohl sloužit samotnému Bohu.
+
 
 Akční body:
 1. Odevzdej se svému bratrstvu.
