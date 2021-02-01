@@ -1,4 +1,4 @@
-# ZPOCHYBŇOVÁNÍ BOŽÍ DOBROTY
+# OBJEDNEJ SI ŽIVOT
 
 ### Denní navigace: 5. týden
 
@@ -6,16 +6,16 @@ Jsi v Egyptě.
 
 Jste východně od Egypta a prcháte do pouště.
 
-Izraelité začali sloužit Bohu. Odvážně odpověděli na jeho pokyny zabitím beránka (obraz egyptského boha) a veřejně potřísnili dveře jeho krví. Při prokazování své dobroty Otec nadále vede své děti po cestě ke svobodě. I vy jste odvážně odpověděli na Pánovy směrnice a označili své zárubně. Po měsíci odloučení od bohů a model tohoto světa jsi se rozhodl držet se disciplín a pokračovat v následování Kristova plánu svobody. To je neustálý důkaz Boží milosti aktivně působící ve tvém životě. Když tento týden budeš následovat Pána z Egypta, zavede tě do pouště. Zůstaň velmi blízko Bohu a tvému bratrstvu, abys nezabloudil.
+Izraelité zabili beránka (obraz egyptského boha) a veřejně potřeli dveře jeho krví. Když nyní vstoupíš na poušť, bude ti dobře, když zůstaneš velmi blízko Bohu a tvému bratrstvu.
 
 Akční body:
-1. Vzdej se kontroly. Je dobré zamyslet se nad tím, jaké disciplíny jsi v pokušení změnit a kde v tomto duchovním cvičení jsi v pokušení podvádět. Přines tyto věci dnes do své svaté hodinky Pánu. Odevzdej mu kontrolu.
+1. Vzdej se kontroly.
 
-2. Zkontroluj svoji kotvu. Už ses dnes zeptal na kotvu? Zkontroloval jsi ho tento týden? Pokud jsi ho dnes nekontaktoval, teď je vhodná doba. Spoléhá na tebe. Potřebuje tě. Pokud ustoupíš jako kotva a on spadne, bude to bolestivý náraz.
+2. Zkontroluj svoji kotvu.
 
-3. Zamysli se nad tím PROČ. tvůj důvod je důležitý pro uskutečnění exodu. Lidé, které miluješ (manželka, děti, přátelé, farnost) touží mít tě volného. Vzpomeň si na ně pokaždé, když říkáš „ano“ jakékoli disciplíně.
+3. Zamysli se nad tím PROČ.
 
-4. Následuj Boha. Nafukuje se tvoje hrdost, když trénuješ disciplíny? Cítíš selhání kvůli lidské nedokonalosti? Jsi v šoku ze stále přetrvávajícího zlozvyku? Vzpomeň si, jak jsi sem přišel, pamatuj, že tě Bůh pozval. Stejně jako Bůh povolal Izraelity z Egypta a zajistil je, když se nemohli osvobodit, tak Bůh povolal i tebe z tvého Egypta do svobody. Pokud se přestaneš dívat na sebe a upřeš oči jen na něj, dovede tě ke svobodě. Následuj ho.
+4. Následuj Boha.
 
 Modli se, aby Pán vysvobodil tebe i tvoje bratrstvo.
 
@@ -24,12 +24,14 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš …
 
 
-#### Exodus 12:29-30 (ČEP)
-*Když nastala půlnoc, pobil Hospodin v egyptské zemi všechno prvorozené, od prvorozeného syna faraónova, který seděl na jeho trůnu, až po prvorozeného syna zajatce v žalářní kobce, i všechno prvorozené z dobytka. Tu farao v noci vstal, i všichni jeho služebníci a všichni Egypťané, a v celém Egyptě nastal veliký křik, protože nebylo domu, kde by nebyl mrtvý.*
+#### Exodus 12:31-36 (ČEP)
+*Ještě v noci povolal Mojžíše a Árona a řekl: „Seberte se a odejděte z mého lidu, vy i Izraelci. Jděte, služte Hospodinu, jak jste žádali. Vezměte také svůj brav i skot, jak jste žádali, a jděte. Vyproste požehnání i pro mne.“ Egypťané naléhali na lid a spěchali s jeho propuštěním ze země, protože si říkali: „Všichni pomřeme!“ Lid tedy vzal těsto ještě nevykynuté, zabalil díže do plášťů a nesl na ramenou. Izraelci jednali podle Mojžíšova rozkazu; vyžádali si též od Egypťanů stříbrné a zlaté šperky a pláště. A Hospodin zjednal lidu přízeň v očích Egypťanů a oni jim vyhověli. Tak vyplenili Egypt.*
 
 #### Zamyšlení:
-V reakci na tyto verše může být člověk popuzen k hněvu vůči Bohu. Lze mu dokonce vyčítat chaos a smrt, které v průběhu času způsobuje. Aby bylo Písmo správně pochopeno, musí být správně čteno, tedy jako celek. Rozšíříme-li naše obzory na celé písmo, vidíme, že Bůh si nikdy nevybral pro lidstvo hřích, utrpení ani smrt. V Rajské zahradě, Bůh stvořil člověka v naprosté harmonii se sebou samým a se stvořeným světem. Byla to lidská rasa, obdarovaná svobodou, kdo učinil rozhodnutí, které vneslo chaos do Božího řádu. Od té doby, Bůh pracoval na přeorganizování světa, který člověk rozvrátil.
+V souladu s příběhem exodu si každoroční židovský svátek Pesach vyžaduje v posvátném jídle použití nekvašeného chleba. Izraelité měli velmi málo času na útěk z Egypta - tak málo času, že se nemohli dočkat, až jejich chléb nakyne. Času bylo málo a bylo třeba jednat.
 
-Bůh dovolil člověku jednat proti Božímu plánu z úcty ke svobodě člověka. Kdyby člověk následoval Boží plán v zahradě, prožíval by Boží lásku úplně jinak. Podobně, kdyby se faraon rozhodl následovat Boží plá v Egyptě, mohl i on prožívat Boží lásku úplně jiným způsobem.
+Přemýšlej o tom v kontextu svého dnešního života. Uznáváš, že času je málo? Víš, že se od tebe nyní vyžadují činy? Myslíš na svou smrtelnost nebo uvažuješ o dni, kdy zemřeš? Probuzení k těmto pravdám přichází u každého muže jinak. Možná je to zážitek z autonehody, infarktu, mrtvice, incidentu doma nebo setkání s násilím. Ať je to cokoli, přináší to náhlé poznání toho, jak málo času máme na Zemi.
 
-Následuješ dnes Boží plán? Zpochybňuješ Boží rozhodnutí, nebo věříš, že jeho plán je plánem čiré dobroty? Jstojí za to vzít tyto otázky do tvé dnešní svaté hodinky.
+Můžeš být přemožen úzkostí, jakmile si začneš poprvé uvědomovat, že tvůj život na Zemi není nekonečný. Stejně jako Izraelité, se můžeš ocitnout ve spěchu „dát věci do pořádku“, zejména svůj osobní život. Bůh ti dal těchto cenných devadesát dní, abys zvážil svůj život, prohloubil své vztahy, očistil se od hříchu a znovu uspořádal svůj život směrem k Bohu. Pán je Bohem moudrosti a lásky. Jakkoli je toto duchovní cvičení náročné, je dobré, že jsi nyní zde. Využij tento čas.
+
+Stále odkládáš ve svém duchovním nebo rodinném životě věci, o které tě Pán žádá, abys je dal do pořádku? Vzpíráš se procesu dospívání, dávání se druhým, přijímání svých správných povinností? Žiješ v průměrnosti nebo plýtváš těchto devadesát dní řezáním rohů nebo zadržováním svého plného úsilí? Promluv s Pánem o tom dnes v čase tiché modlitby a poslouchej, kam tě vede. 
