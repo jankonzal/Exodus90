@@ -2,8 +2,6 @@
 
 ### Denní navigace: 5. týden
 
-Jsi v Egyptě.
-
 Jste východně od Egypta a prcháte do pouště.
 
 Izraelité začali sloužit Bohu. Odvážně odpověděli na jeho pokyny zabitím beránka (obraz egyptského boha) a veřejně potřísnili dveře jeho krví. Při prokazování své dobroty Otec nadále vede své děti po cestě ke svobodě. I vy jste odvážně odpověděli na Pánovy směrnice a označili své zárubně. Po měsíci odloučení od bohů a model tohoto světa jsi se rozhodl držet se disciplín a pokračovat v následování Kristova plánu svobody. To je neustálý důkaz Boží milosti aktivně působící ve tvém životě. Když tento týden budeš následovat Pána z Egypta, zavede tě do pouště. Zůstaň velmi blízko Bohu a tvému bratrstvu, abys nezabloudil.  
