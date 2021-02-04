@@ -27,7 +27,10 @@ Otče náš …
 
 #### Zamyšlení:
 Dnešní pasáž nám ukazuje sílu eucharistie. Svatý Jan Zlatoústý napsal o této pasáži z Exodu charakteristicky přímým a náročným způsobem:
-    *Pokud chceme porozumět síle Kristovy krve, měli bychom se vrátit ke starodávnému popisu jejího předobrazu v Egyptě. "Obětujte beránka bez vady," přikázal Mojžíš, "a pokropte jeho krví dveře." Pokud bychom se ho měli zeptat, co tím myslel a jak by krev iracionálního zvířete mohla zachránit lidi obdařené rozumem, jeho odpověď by byla, že spásná síla nespočívá v samotné krvi, ale ve skutečnosti, že je to znamení z Pánovy krve. V těch dnech, kdy ničivý anděl viděl krev na dveřích, se neodvážil vstoupit, o kolik méně se teď ďábel přiblíží, když uvidí, ne tu obraznou krev na dveřích, ale pravou krev na rtech věřících, dveře Kristova chrámu.* (přeloženo z angličtiny)
+
+*Chceš poznat moc Kristovy krve? Pak se vraťme k jejímu předobrazu, k dávným příběhům, jak se odehrály v Egyptě.*
+*Zabijte, říká Mojžíš, beránka, na němž není vady, a jeho krví pomažte dveře. Co to znamená? Že krev zvířete je schopna spasit rozumného člověka? Zajisté, říká, ale nikoli proto, že je to krev, nýbrž proto, že je předobrazem krve Páně. Jestliže Ďábel nyní uvidí nikoli krev předobrazu rozetřenou po dveřích, nýbrž krev pravdy nanesenou ústy věrných na dveře Chrámu, v němž spočívá Kristus, což se tím spíše nestáhne zpět?*
+(Z katechezí svatého Jana Zlatoústého, biskupa, in SCh 50, s. 158–162; lat. s. 174–177)
 
 Sv. Jan hovoří o svatém přijímání, které přijímáme na rtech a do úst. Tento úžasný dar nám poskytuje ochranu před mocí smrti a temnoty, ještě silněji, než krev velikonočního beránka chránila syny Izraele před andělem smrti. Běžel jsi denně přijímat eucharistii? Byl jsi alespoň věrný přidání jedné mše navíc do svého týdne? Krev Beránka není jen součástí historické události, ale probíhající současné reality. Kristus obětoval svou oběť jednou provždy a ta oběť pokračuje při každé mši. Jaký to dar.
 
