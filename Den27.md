@@ -9,7 +9,7 @@ Izraelité konečně vidí hodnotu opuštění Egypta. Všímej si falešných b
 Akční body:
 1. Odevzdej se svému bratrstvu.
 
-2. Vytvořte cvičební plán.
+2. Vytvoř cvičební plán.
 
 3. Uznávej dobrotu Pána.
 
@@ -32,4 +32,4 @@ Je snadné být neustále nespokojen se současností. Většina z nás je zvykl
 
 Kvůli tvojí reakci na Boží volání ke svobodě nyní také očekáváš úsvit. Těchto devadesát dní oběti je drahocenný čas. Může být snadné dívat se na tyto dny jako na obtěžování nebo na zbytečnou zkoušku vůle. Možná netrpělivě čekáte na den, kdy tyto nesmysly skončí, a můžete si užívat života na svobodě. To je chyba. Toto je čas na oběti, které jsou před tebou. Tvoje rodina tě prosí, aby tě změnil tvůj čas v modlitbě. Církev touží po tom, abys prostřednictvím své askeze vyrostl a byl tu více pro lidi v církvi. Tvoji bratři spoléhají na to, že jim pomůžeš stoupat, protože oni pomohou stoupat tobě. Nakloň se. Žij v přítomnosti.
 
-Věnoval jsi náležitou pozornost podrobnostem duchovního cvičení, ke kterému tě Pán povolal? Pokud ano, přijmi v tuto chvíli Boží milující potvrzení. Pokud ne, otevři své srdce milosti, kterou ti Pán chce dát. Touží tě přivést k úsvitu. Volba je jen na tobě. 
+Věnoval jsi náležitou pozornost podrobnostem duchovního cvičení, ke kterému tě Pán povolal? Pokud ano, přijmi v tuto chvíli Boží milující potvrzení. Pokud ne, otevři své srdce milosti, kterou ti Pán chce dát. Touží tě přivést k úsvitu. Volba je jen na tobě.

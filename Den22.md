@@ -9,7 +9,7 @@ Egyptské rány eskalují. Pán nyní využívá k prosazování svých plánů 
 Akční body:
 1. Odevzdej se svému bratrstvu. Kolik setkání bratrstva jsi zmeškal? Jsi v pokušení přeskočit budoucí svatou hodinku bratrstva, mši nebo setkání? Pokud tě satan dokáže přesvědčit, že tvé bratry nepotřebuješ, ví, že jeho zotročení bude opět stejně snadné jako před tímto exodem. Zavázat se svému bratrstvu.
 
-2. Vytvořte cvičební plán. Během těchto devadesáti dnů jsi povolán k pravidelnému intenzivnímu cvičení. Muži v Exodu před tebou zjistili, že pokud nemají cvičební plán kterého by se drželi, je velmi náročné si každý týden vyhradit čas na cvičení. Vytvoř plán, zapiš si ho a držte se ho.
+2. Vytvoř cvičební plán. Během těchto devadesáti dnů jsi povolán k pravidelnému intenzivnímu cvičení. Muži v Exodu před tebou zjistili, že pokud nemají cvičební plán kterého by se drželi, je velmi náročné si každý týden vyhradit čas na cvičení. Vytvoř plán, zapiš si ho a držte se ho.
 
 3. Uznávej dobrotu Pána. Protože tento týden postihují Egypťany rány, všimni si Boží všemohoucnosti. Má moc dělat velké věci, včetně toho, že vás osvobodí z otroctví, bez ohledu na to, jak tvrdá se jeví věrnost tomuto cvičení. Pamatuj: jeho dobrota nezná hranic. Nespoléhej se arogantně na sebe. Spoléhej na Boha, jediný kdo má takové schopnosti, tě povede k větší svobodě.
 

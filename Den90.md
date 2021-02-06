@@ -8,7 +8,9 @@ Dozvěděl jsi se něco o tom, co to znamená vzít si každý den svůj kříž
 
 Akční body:
 1. Přemýšlej o své tříměsíční denní modlitbě.
+
 2. Vezmi na vědomí svoji trvalou potřebu Boha.
+
 3. Uznej užitek své pozornosti na Písmo v těchto posledních měsících.
 
 Modli se, aby Pán vysvobodil tebe i tvoje bratrstvo.

@@ -9,7 +9,7 @@ Izraelité konečně vidí hodnotu opuštění Egypta. Všímej si falešných b
 Akční body:
 1. Odevzdej se svému bratrstvu.
 
-2. Vytvořte cvičební plán.
+2. Vytvoř cvičební plán.
 
 3. Uznávej dobrotu Pána.
 

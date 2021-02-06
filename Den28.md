@@ -9,7 +9,7 @@ Izraelité konečně vidí hodnotu opuštění Egypta. Všímej si falešných b
 Akční body:
 1. Odevzdej se svému bratrstvu.
 
-2. Vytvořte cvičební plán.
+2. Vytvoř cvičební plán.
 
 3. Uznávej dobrotu Pána.
 
@@ -34,4 +34,4 @@ Dnešní pasáž nám ukazuje sílu eucharistie. Svatý Jan Zlatoústý napsal o
 
 Sv. Jan hovoří o svatém přijímání, které přijímáme na rtech a do úst. Tento úžasný dar nám poskytuje ochranu před mocí smrti a temnoty, ještě silněji, než krev velikonočního beránka chránila syny Izraele před andělem smrti. Běžel jsi denně přijímat eucharistii? Byl jsi alespoň věrný přidání jedné mše navíc do svého týdne? Krev Beránka není jen součástí historické události, ale probíhající současné reality. Kristus obětoval svou oběť jednou provždy a ta oběť pokračuje při každé mši. Jaký to dar.
 
-Věříš, že Kristovo tělo a krev přítomné v eucharistii má moc tě chránit před mocí smrti a temnoty? Věříš - opravdu věříš - tomu, že Kristovo tělo, krev, duše a božství jsou plně přítomné v eucharistii? Pokud ano chval Boha, že máš oči, které vidí, a uši, které slyší dobré věci, dobré věci které pro tebe má. Pokud nevěříš, dnes je ten den, kdy budeš žádat Pána o milost uzření pravdy o tomto jeho daru pro lidstvo. 
+Věříš, že Kristovo tělo a krev přítomné v eucharistii má moc tě chránit před mocí smrti a temnoty? Věříš - opravdu věříš - tomu, že Kristovo tělo, krev, duše a božství jsou plně přítomné v eucharistii? Pokud ano chval Boha, že máš oči, které vidí, a uši, které slyší dobré věci, dobré věci které pro tebe má. Pokud nevěříš, dnes je ten den, kdy budeš žádat Pána o milost uzření pravdy o tomto jeho daru pro lidstvo.

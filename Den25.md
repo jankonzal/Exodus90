@@ -9,7 +9,7 @@ Izraelité konečně vidí hodnotu opuštění Egypta. Všímej si falešných b
 Akční body:
 1. Odevzdej se svému bratrstvu.
 
-2. Vytvořte cvičební plán.
+2. Vytvoř cvičební plán.
 
 3. Uznávej dobrotu Pána.
 
@@ -28,6 +28,6 @@ Otče náš …
 #### Zamyšlení:
 Faraonova frustrace sice roste, ale jeho srdce zůstává zatvrzené. Nadále bouří, přestože se mu důkladně ukazuje, že poslušnost Božímu plánu je jedinou cestou k naplnění. Faraon věří, že má cestu vpřed pro sebe a svůj lid, ale tento plán je zjevně proti vůli Boží. Výsledkem je, že on a jeho lidé se ocitli v kruté temnotě.   
 
-Uvažujme, že člověk je stvořená bytost a jako takový sobě nepatří. Teprve když se vyrovnáme s tím, že patříme Bohu a pouze jemu (což vyžaduje silnou dávku pokory), můžeme jasněji vidět Boží prozřetelnost. 
+Uvažujme, že člověk je stvořená bytost a jako takový sobě nepatří. Teprve když se vyrovnáme s tím, že patříme Bohu a pouze jemu (což vyžaduje silnou dávku pokory), můžeme jasněji vidět Boží prozřetelnost.
 
 Podívej se na lid Izraele. Zvyšujíc se v pokoře a poslušnosti Pánova plánu, ocitají se obdaření světlem. Nyní se podívej na svůj život. Žiješ ve světle nebo ve tmě? Stávš se poslušnější vůči Pánovu plánu prostřednictvím daru disciplín, nebo se stáváš vzpurnějšími? Promluv si o tom s Pánem. Proč je jeho dobrý plán pro tebe příčinou rebelie (v malých nebo velkých ohledech)? Požádej ho, aby ti ukázal hodnotu disciplín, zejména hodnotu těch, které nejvíce nenávidíš. Požádej ho, aby ti právě teď ukázal, co ve tvém životě skrze ně dělá.

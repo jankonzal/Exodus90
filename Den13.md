@@ -9,7 +9,7 @@ Disciplíny jsou těžší, než jsme si myslely. Nebylo by jednodušší s tím
 Akční body:
 1. Vykonej dobrou zpověď.
 
-2. Drž se denních zamyšlení.
+2. Drž se denních textů.
 
 3. Přidej do svého týdne jednu mši navíc.
 
