@@ -2,9 +2,7 @@
 
 ### Denní navigace: 5. týden
 
-Jsi v Egyptě.
-
-Jste východně od Egypta a prcháte do pouště.
+Jsi východně od Egypta a prcháš do pouště.
 
 Izraelité zabili beránka (obraz egyptského boha) a veřejně potřeli dveře jeho krví. Když nyní vstoupíš na poušť, bude ti dobře, když zůstaneš velmi blízko Bohu a tvému bratrstvu.
 
@@ -34,4 +32,4 @@ Přemýšlej o tom v kontextu svého dnešního života. Uznáváš, že času j
 
 Můžeš být přemožen úzkostí, jakmile si začneš poprvé uvědomovat, že tvůj život na Zemi není nekonečný. Stejně jako Izraelité, se můžeš ocitnout ve spěchu „dát věci do pořádku“, zejména svůj osobní život. Bůh ti dal těchto cenných devadesát dní, abys zvážil svůj život, prohloubil své vztahy, očistil se od hříchu a znovu uspořádal svůj život směrem k Bohu. Pán je Bohem moudrosti a lásky. Jakkoli je toto duchovní cvičení náročné, je dobré, že jsi nyní zde. Využij tento čas.
 
-Stále odkládáš ve svém duchovním nebo rodinném životě věci, o které tě Pán žádá, abys je dal do pořádku? Vzpíráš se procesu dospívání, dávání se druhým, přijímání svých správných povinností? Žiješ v průměrnosti nebo plýtváš těchto devadesát dní řezáním rohů nebo zadržováním svého plného úsilí? Promluv s Pánem o tom dnes v čase tiché modlitby a poslouchej, kam tě vede. 
+Stále odkládáš ve svém duchovním nebo rodinném životě věci, o které tě Pán žádá, abys je dal do pořádku? Vzpíráš se procesu dospívání, dávání se druhým, přijímání svých správných povinností? Žiješ v průměrnosti nebo plýtváš těchto devadesát dní řezáním rohů nebo zadržováním svého plného úsilí? Promluv s Pánem o tom dnes v čase tiché modlitby a poslouchej, kam tě vede.

@@ -2,7 +2,6 @@
 
 ### Denní navigace: 5. týden
 
-Jsi v Egyptě.
 
 Jste východně od Egypta a prcháte do pouště.
 
@@ -32,4 +31,4 @@ Rozloučení s Rudým mořem je pro nás známá událost. Izraelité jsou obklo
 
 I když bychom si mohli myslet, že toužíme po úlevě od našich obětí a askeze, ale Bůh vidí dále a chce nám dát to, co pro sebe v nejhlubším nitru chceme. Co je to nejtíživější co chceme? Ne nadcházející potěšení z filmu; ne chuť dobrého piva; ne momentální maximum kontroly nad velkým ziskem na trhu nebo vývojem na hřišti. Chceme skutečnou radost. Chceme skutečnou svobodu. Chceme život, který stojí za to žít. Tvoje uši mohou být hluché k tichému výkřiku srdce, které říká Bohu: „Dej mi radost!“ Bůh to přesto slyší a ptá se tě: „Proč na mě brečíš?“
 
-Bůh ti říká: „Jdi kupředu.“ Jeho slova mohou být těžko přijatelná, pokud se bojácně díváte na moře. Ale vezmi si k srdci, že jeho plán je větší, než můžeš vědět, a bude s tebou přes to všechno. V dnešní svaté hodince si udělej čas a promluv s Bohem o svých touhách. Poslouchej, jak ti ukazuje, co je pod hladinou tvých tužeb. Poslouchej, jak ukazuje na to, co ti přinese opravdovou radost a co přinese dobro tobě, tvé  rodině a tvé farnosti. 
+Bůh ti říká: „Jdi kupředu.“ Jeho slova mohou být těžko přijatelná, pokud se bojácně díváte na moře. Ale vezmi si k srdci, že jeho plán je větší, než můžeš vědět, a bude s tebou přes to všechno. V dnešní svaté hodince si udělej čas a promluv s Bohem o svých touhách. Poslouchej, jak ti ukazuje, co je pod hladinou tvých tužeb. Poslouchej, jak ukazuje na to, co ti přinese opravdovou radost a co přinese dobro tobě, tvé  rodině a tvé farnosti.

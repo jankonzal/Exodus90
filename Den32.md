@@ -2,9 +2,7 @@
 
 ### Denní navigace: 5. týden
 
-Jsi v Egyptě.
-
-Jste východně od Egypta a prcháte do pouště.
+Jsi východně od Egypta a prcháš do pouště.
 
 Izraelité zabili beránka (obraz egyptského boha) a veřejně potřeli dveře jeho krví. Když nyní vstoupíš na poušť, bude ti dobře, když zůstaneš velmi blízko Bohu a tvému bratrstvu.
 

@@ -2,9 +2,7 @@
 
 ### Denní navigace: 5. týden
 
-Jsi v Egyptě.
-
-Jste východně od Egypta a prcháte do pouště.
+Jsi východně od Egypta a prcháš do pouště.
 
 Izraelité zabili beránka (obraz egyptského boha) a veřejně potřeli dveře jeho krví. Když nyní vstoupíš na poušť, bude ti dobře, když zůstaneš velmi blízko Bohu a tvému bratrstvu.
 
@@ -36,4 +34,4 @@ Ber však na vědomí: zaslíbená země není dalším městem,a ani faraón a 
 
 Věci se budou zhoršovat. Ten zlý, hněvivější než faraón, vás bude pronásledovat do pouště a bude se snažit tě vystopovat a zotročit tě víc než kdy předtím. Ale vezmi k srdci, Pán tě vede, tvoji bratři jsou s tebou a cíl stojí za to. Drž se Kristova plánu: modlitba, askeze, bratrství. To tě vyvedlo z Egypta; dovede tě až do zaslíbené země.
 
-Chval dens Boha. Nabídni mu svou vděčnost za to, že tě vedl k dokončení prvních třiceti dnů z Egypta a dále ke svobodě. 
+Chval dens Boha. Nabídni mu svou vděčnost za to, že tě vedl k dokončení prvních třiceti dnů z Egypta a dále ke svobodě.

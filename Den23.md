@@ -2,7 +2,7 @@
 
 ### Denní navigace: 4. týden
 
-Jsi v Egyptě.
+Jsi východně od Egypta a prcháš do pouště.
 
 Izraelité konečně vidí hodnotu opuštění Egypta. Všímej si falešných bohů, které Pán ničí ve tvém životě. Nech tuto realitu, aby ti přinesla změnu v srdci, kterou potřebuješ, abys mohl sloužit samotnému Bohu.
 

@@ -2,9 +2,7 @@
 
 ### Denní navigace: 5. týden
 
-Jsi v Egyptě.
-
-Jste východně od Egypta a prcháte do pouště.
+Jsi východně od Egypta a prcháš do pouště.
 
 Izraelité zabili beránka (obraz egyptského boha) a veřejně potřeli dveře jeho krví. Když nyní vstoupíš na poušť, bude ti dobře, když zůstaneš velmi blízko Bohu a tvému bratrstvu.
 
@@ -34,4 +32,4 @@ V Novém zákoně vidíme Ježíše jako velekněze, naplnění veškerého star
 
 To znamená, že ty, člen společného kněžství, musíš přinést oběť. Jako? Svatý Pavel nám říká: „Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba. “ (Římanům 12: 1). Toto duchovní cvičení, kterému se nyní věnuješ, je obětí Bohu. Denním přístupem k jeho disciplínám se formuješ jako kněz Ježíše Krista jménem sebe a své rodiny.
 
-Promluv s Pánem o tvém úřadu „obyčejného“ kněze. Poslechni si, co by mohl říct o posvěcení tvého dne a nabízení se pro ostatní zkrze asketické disciplíny, které jsi převzal. Nech ho, aby tě nechal hlouběji porozuměnět obětem. 
+Promluv s Pánem o tvém úřadu „obyčejného“ kněze. Poslechni si, co by mohl říct o posvěcení tvého dne a nabízení se pro ostatní zkrze asketické disciplíny, které jsi převzal. Nech ho, aby tě nechal hlouběji porozuměnět obětem.
