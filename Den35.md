@@ -2,7 +2,6 @@
 
 ### Denní navigace: 5. týden
 
-
 Jste východně od Egypta a prcháte do pouště.
 
 Izraelité zabili beránka (obraz egyptského boha) a veřejně potřeli dveře jeho krví. Když nyní vstoupíš na poušť, bude ti dobře, když zůstaneš velmi blízko Bohu a tvému bratrstvu.
