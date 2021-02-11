@@ -32,7 +32,7 @@ V tento třicátý devátý den boje pravděpodobně budeš sympatizovat se stí
 
 Izraelité stojí před zásadním rozhodnutím: Vraťte se zpět k současnému stavu otroctví nebo skutečně odstraňte tuto touhu ze svého srdce a mysli. Sv. Jan Kassián říká: „Tělesné odříkání a odsun z Egypta pro nás nebude mít žádnou hodnotu… pokud bychom nebyli schopni současně dosáhnout odříkání srdce, které je vznešenější a prospěšnější.“
 
-Svým plánem modlitby, askeze a bratrství tě Pán přivedl na místo fyzického oddělení od Egypta (od filmů, peněz, her atd.). Ale kňučíš ve svém srdci stále jako Izraelité? Stále se držíš pekla, ze kterého tě Pán vedl? Jak budete pokračovat na této cestě, tvoje vášně naříkají a tlačí tě, abys se vrátil do otroctví. V hloubi svého srdce a mysli se rozhodni odmítnout otroctví neřesti. Přizpůsob svou vnitřní realitu vnější svobodě, kterou ti dal Bůh.
+Svým plánem modlitby, askeze a bratrství tě Pán přivedl na místo fyzického oddělení od Egypta (od filmů, peněz, her atd.). Ale kňučíš ve svém srdci stále jako Izraelité? Stále se držíš pekla, ze kterého tě Pán vedl? Jak budeš pokračovat na této cestě, tvoje vášně naříkají a tlačí tě, abys se vrátil do otroctví. V hloubi svého srdce a mysli se rozhodni odmítnout otroctví neřesti. Přizpůsob svou vnitřní realitu vnější svobodě, kterou ti dal Bůh.
 
 Jednu po 40. dni si všimneš rozdílu mezi vnější a vnitřní realitou. Existuje důvod, proč toto duchovní cvičení trvá devadesát dní, nejen čtyřicet. Je třeba udělat ještě více vnitřní práce. Čeká tě větší svoboda, jako je tomu u Izraelitů. Poděkuj Pánu za vnější pokrok, kterého jsi dosáhl, a sleduj ho i po 40. dni v neúnavném hledání vnitřní svobody, až do dne 91.
 
