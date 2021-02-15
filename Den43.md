@@ -1,4 +1,4 @@
-# vůle udělat to komické
+# VŮLE DĚLAT TO KOMICKÉ
 
 ### Denní navigace: 7. týden
 
