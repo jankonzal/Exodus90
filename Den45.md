@@ -28,7 +28,7 @@ Otče náš …
 #### Zamyšlení:
 Izraelité se připravují na setkání s Bohem. Pomysli na všechny přípravy, které musí provést, než se setkají s Bohem svých otců: praní šatů, sexuální zdrženlivost a úcta. Lidu se připomíná, že Bůh je naprosto svatý, a je jim zakázáno přiblížit se k hoře, na které bude Mojžíš s Bohem mluvit (natož se ho dotknout). Tato svatá hora je tak posvátná, že i když se jí dotknete, povede to k popravě.
 
-Ztratili jsme smysl pro posvátnost. Zřídka muži stojí v úžasu před Pánem a uvažují o své bezvýznamnosti. Zřídka málo kdy se chováme před svatostánkem v našich kostelích s takovou citlivostí a úctou, jakou si zaslouží. Bývaly doby, kdy se lidé zdrželi dokonce vstupu do svatyně, pokud k tomu nebyli řádně určení, duchovně připraveni a nebyli k tomu nasměrováni za určitým účelem.
+Ztratili jsme smysl pro posvátnost. Zřídka muži stojí v úžasu před Pánem a uvažují o své bezvýznamnosti. Málo kdy se chováme před svatostánkem v našich kostelích s takovou citlivostí a úctou, jakou si zaslouží. Bývaly doby, kdy se lidé zdrželi dokonce vstupu do svatyně, pokud k tomu nebyli řádně určení, duchovně připraveni a nebyli k tomu nasměrováni za určitým účelem.
 
 Zamysli se na chvíli nad svým vlastním farním kostelem. Chováš se  se svými spolufarníky ke kostelu s náležitou úctou? Máš pietní postoj a před vstupem se ujistíš, že jsi správně oblečen a připraven? Nebo bloudíš po kostele, jako by to nebylo nic jiného než průchod na jiné místo?
 
