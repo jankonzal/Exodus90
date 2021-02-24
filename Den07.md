@@ -46,6 +46,6 @@ Dokážeš si představit, na co myslel Mojžíš? "Má v úmyslu vytrhnout nás
 
 V dávných dobách se věřilo, že jméno má moc a sděluje něco o tom, který byl jmenován. Když Bůh zjeví své jméno Mojžíšovi, propůjčí mu svou božskou moc. Dává Mojžíšovi důvod, aby měl důvěru v misi, která byla před ním. Mojžíšovi stačí vzývat Boha v důvěře.
 
-Všimněte si také významu Mojžíšovi mise a poselství, které má předávat Izraelitům. Zde opět Mojžíš předobrazuje Krista. Stejně jako byl Mojžíš poslán Bohem k Izraelitům („…Řekni Izraelcům toto: JSEM posílá mě k vám.“), tak byl Kristus poslán Otcem, aby nás všechny osvobodil. „Neboj se,“ říká Ježíš, „jen věř“ (Lukáš 8:50). Když se vrháš na své disciplíny, umíráš sám pro sebe a celou dobu bojuješ, měj oči upřené na Ježíše. Byl ti poslán, aby tě osvobodil od sebe samého, od hříchu a otroctví. Když bojuješ v každodenním boji za svobodu, pamatuj, že Bůh bojuje tebou a za tebe.
+Všimněte si také významu Mojžíšovi mise a poselství, které má předávat Izraelitům. Zde opět Mojžíš předobrazuje Krista. Stejně jako byl Mojžíš poslán Bohem k Izraelitům *(„…Řekni Izraelcům toto: JSEM posílá mě k vám.“)*, tak byl Kristus poslán Otcem, aby nás všechny osvobodil. *„Neboj se,“ říká Ježíš, „jen věř“* (Lukáš 8:50). Když se vrháš na své disciplíny, umíráš sám pro sebe a celou dobu bojuješ, měj oči upřené na Ježíše. Byl ti poslán, aby tě osvobodil od sebe samého, od hříchu a otroctví. Když bojuješ v každodenním boji za svobodu, pamatuj, že Bůh bojuje tebou a za tebe.
 
 Nyní vzývej Boha. Čeká, až ti dá svou sílu a moc.
