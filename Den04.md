@@ -47,3 +47,6 @@ Mojžíš přijal své jméno, když dcera Faraóna řekla: „Vytáhla jsem ho 
 Křest je často zapomenutým rituálem. Svatý Pavel přesto trval na jeho důležitosti: „Nevíte snad, že všichni, kteří jsme pokřtěni v Krista Ježíše, byli jsme pokřtěni v jeho smrt? ... abychom – jako Kristus byl vzkříšen z mrtvých slavnou mocí svého Otce – i my vstoupili na cestu nového života.“ (Římanům 6: 3–4). Svoboda, kterou v tomto exodu hledáš, pramení z nového života, který jsi dostal při křtu.
 
 Připomeň si dnes milosti svého křtu a podívej se na toho, kdo ti ji dal. Touží v tobě ještě jednou vzbudit dar nového života. Mluv s ním dnes otevřeně. Poděkuj mu za pozvání do tohoto duchovního cvičení a zeptej se, proč ti tak velkoryse znovu nabízí dar nového života. Odpověď bude velká láska.
+
+-------------------------------------------------------------------------------
+Matouš 2: 13–16 *Proto k nim mluvím v podobenstvích, že hledíce nevidí a slyšíce neslyší ani nechápou. A plní se na nich proroctví Izaiášovo: ‚Budete stále poslouchat, a nepochopíte, ustavičně budete hledět, a neuvidíte. Neboť obrostlo tukem srdce tohoto lidu, ušima nedoslýchají a oči zavřeli, takže neuvidí očima a ušima neuslyší, srdcem nepochopí a neobrátí se – a já je neuzdravím.‘ Blažené vaše oči, že vidí, i vaše uši, že slyší.*
