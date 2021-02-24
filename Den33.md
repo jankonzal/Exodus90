@@ -30,6 +30,13 @@ Toto spasení nebo „vykoupení“ prvorozeného syna bude pro Izraelity trvalo
 
 V Novém zákoně vidíme Ježíše jako velekněze, naplnění veškerého starozákonního kněžství - zvláště na Velký pátek, kdy bude knězem i obětí, a bude obětována dokonalá oběť. Po vítězství Krista nad hříchem a smrtí se všichni, kdo jsou pokřtěni v Krista, účastní jeho kněžství (viz Zjevení 5:10), nyní známého jako společné kněžství. Společné kněžství (odlišné od naturálního kněžství) přichází s výsadami a povinnostmi. Jednou z těchto povinností je, že kněz musí přinést oběť.
 
-To znamená, že ty, člen společného kněžství, musíš přinést oběť. Jako? Svatý Pavel nám říká: „Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba. “ (Římanům 12: 1). Toto duchovní cvičení, kterému se nyní věnuješ, je obětí Bohu. Denním přístupem k jeho disciplínám se formuješ jako kněz Ježíše Krista jménem sebe a své rodiny.
+To znamená, že ty, člen společného kněžství, musíš přinést oběť. Jako? Svatý Pavel nám říká: *„Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba.“* (Římanům 12: 1). Toto duchovní cvičení, kterému se nyní věnuješ, je obětí Bohu. Denním přístupem k jeho disciplínám se formuješ jako kněz Ježíše Krista jménem sebe a své rodiny.
 
 Promluv s Pánem o tvém úřadu „obyčejného“ kněze. Poslechni si, co by mohl říct o posvěcení tvého dne a nabízení se pro ostatní zkrze asketické disciplíny, které jsi převzal. Nech ho, aby tě nechal hlouběji porozuměnět obětem.
+
+-------------------------------------------------------------------------------
+Exodus 32: 1–6 *Když lid viděl, že Mojžíš dlouho nesestupuje z hory, shromáždil se k Áronovi a naléhali na něho: „Vstaň a udělej nám boha, který by šel před námi. Vždyť nevíme, co se stalo s Mojžíšem, s tím člověkem, který nás vyvedl z egyptské země.“ Áron jim řekl: „Strhněte zlaté náušnice z uší svých žen, synů a dcer a přineste je ke mně!“ I strhal si všechen lid z uší zlaté náušnice a přinesli je k Áronovi. On je od nich vzal, připravil formu a odlil z toho sochu býčka. A oni řekli: „To je tvůj bůh, Izraeli, který tě vyvedl z egyptské země.“ Když to Áron viděl, vybudoval před ním oltář. Potom Áron provolal: „Zítra bude Hospodinova slavnost.“ Nazítří za časného jitra obětovali oběti zápalné a přinesli oběti pokojné. Pak se lid usadil k jídlu a pití. Nakonec se dali do nevázaných her.*
+
+Exodus 32:26 *Tu se Mojžíš postavil do brány tábora a zvolal: „Kdo je Hospodinův, ke mně!“ Seběhli se k němu všichni Léviovci.-*
+
+Zjevení 5:9-10 *A zpívali novou píseň: „Jsi hoden přijmout tu knihu a rozlomit její pečetě, protože jsi byl obětován, svou krví jsi Bohu vykoupil lidi ze všech kmenů, jazyků, národů a ras a učinil je královským kněžstvem našeho Boha; a ujmou se vlády nad zemí.“*
