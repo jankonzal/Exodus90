@@ -30,7 +30,7 @@ Otče náš …
 #### Zamyšlení:
 Izraelité si oprávněně stěžují, když se od nich očekává, že budou vyrábět stejné množství cihel s menším množstvím slámy. Jejich otrokářský pán klade stále nedosažitelné požadavky. Jejich otrokářským pánem je faraon a naším satan. Naše závislosti a návyky v nás vytvářejí neutuchající touhu. Podlehnout těmto pokušením je však hluboce nenaplňující, jak ukazuje dnešní čtení.
 
-Bez ohledu na to, co nás zotročuje, je pokušení hledat „rychlé řešení“ tím, že ustoupíme naší touze. Ironií je, že čím více se vzdáme, tím méně jsme naplněni.Pokušení vytváří iluzi, že naše touha najde zadostiučinění, pokud si příště budeme dopřávat trochu víc. Takže jsme stále hlouběji vedeni do otroctví a naši svobodu je stále těžší získat. Každý z nás příliš dobře zná pravdu o slovech svatého Pavla z jeho dopisu Římanům: „Nepoznávám se ve svých skutcích; vždyť nedělám to, co chci, nýbrž to, co nenávidím.“ (Římanům 7:15)
+Bez ohledu na to, co nás zotročuje, je pokušení hledat „rychlé řešení“ tím, že ustoupíme naší touze. Ironií je, že čím více se vzdáme, tím méně jsme naplněni.Pokušení vytváří iluzi, že naše touha najde zadostiučinění, pokud si příště budeme dopřávat trochu víc. Takže jsme stále hlouběji vedeni do otroctví a naši svobodu je stále těžší získat. Každý z nás příliš dobře zná pravdu o slovech svatého Pavla z jeho dopisu Římanům: *„Nepoznávám se ve svých skutcích; vždyť nedělám to, co chci, nýbrž to, co nenávidím.“* (Římanům 7:15)
 
 Nikdy nezapomeň na nepravdivost této temné lži, tvoje pokušení k tobě neustále promlouvá. Udržuj ji na mysli jako hnací sílu, která tě vede ke svobodě.
 
