@@ -38,3 +38,6 @@ To, že byl muž zotročen, ještě neznamená, že je slabý. Ve většině př
 Ale později v životě začnou chápat, že byli podvedeni. Tyto věci nejsou užitečné; postrádají pravdu a nepřinášejí jim štěstí, po kterém touží. Místo toho je zapletli do hluboce zakořeněných vazeb a zvyků. Jakkoli můžou toužit po svobodě, nezdá se, že by se osvobodili z věcí, které je svazují, bez ohledu na jejich sílu. Stejně jako Izraelité, i muž v této situaci je schopen se naučit jednu z největších pravd Písma svatého: pouze Bůh uděluje vysvobození. Stejně jako byl izraelský lid nesmírně silný, ale nedokázal se osvobodit, tak moderní muž objevuje stejnou realitu i ve své vlastní situaci.
 
 Kolikrát jsi udělal velké pokusy „osvobodit se“, jen abys zjistil, že toho nejsi schopný? Stovky? Když začínáš tuto neuvěřitelnou cestu, toto intenzivní duchovní cvičení, nikdy nezapomeň na tuto mimořádně úžasnou pravdu: můžeš to udělat - ale bude to Bůh, kdo uděluje osvobození.
+
+-------------------------------------------------------------------------------
+Matouš 7:14 *Těsná je brána a úzká cesta, která vede k životu, a málokdo ji nalézá.* 
