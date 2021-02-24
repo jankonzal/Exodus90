@@ -33,4 +33,4 @@ Pokud nejsi osmiletý chlapec, vyhlídka na množství kvákajících žab ochro
 
 Často děláme velkou chybu, když si nevšímáme nikoho jiného než sebe. Příliš snadno (i když jen obrazně) ignorujeme Boha, naše manželky, farníky, syny a dcery. Ignorování ostatních je opakem toho, co znamená být skutečným mužem. A pohrdání Kristovým tělem - což je pohrdání samotným Bohem - je cesta, která pravděpodobně povede do pekla.
 
-Chceš dosáhnout svého skutečného potenciálu a využít svou Bohem darovanou sílu, jak tě stvořil? Pak musíš myslet na ostatní. „Pokořte se tedy pod mocnou ruku Boží“ (1. Petrův 5: 6) a pozvedněte ty kolem sebe. Při tom budeš jednat svatě. Jak Pán vidí, že jednáš nyní? Nejsi si jistý? Zeptejte se ho.
+Chceš dosáhnout svého skutečného potenciálu a využít svou Bohem darovanou sílu, jak tě stvořil? Pak musíš myslet na ostatní. *„Pokořte se tedy pod mocnou ruku Boží“* (1. Petrův 5: 6) a pozvedněte ty kolem sebe. Při tom budeš jednat svatě. Jak Pán vidí, že jednáš nyní? Nejsi si jistý? Zeptejte se ho.
