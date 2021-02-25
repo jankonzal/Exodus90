@@ -47,3 +47,5 @@ Svatý Metoděj považuje Faraóna za „typ ďábla“. [2] Stejně jako Faraó
 Nyní jsi ve třetím denu svého odhodlání osvobodit se od těchto věcí. Může se stát, že i když začneš vytvářet prostor mezi tebou a tvými idoly, máš pocit, jako bys se pohyboval přímo skrze ně. Svatý Augustin sleduje tuto ironii v příběhu Exodus: Izraelci, kteří byli zotročeni a odsouzeni k utonutí, kráčeli vodami Rudého moře na svobodu. Naše kultura nás obklopuje neustálým pozváním k bezduchým a ničivým potěšením. Jsme jako Izraelité a kráčíme ke svobodě se dvěma obrovskými vodními stěnami po naší levé a pravé ruce. Ale když Boží síla otevírá cestu, naším jediným úkolem je vykročit vpřed.
 
 Děkuj Pánu, že ti dnes otevřel cestu, a získej odvahu jít kupředu.
+-------------------------------------------------------------------------------
+[2]  St. Methodius, chapter 2 of “Discourse IV: Theopatra,” in The Banquet of the Ten Virgins. A biblical “type” is something (whether a person, place, thing, or event) that points to or prefigures another, deeper reality. We will encounter a number of “types” during Exodus 90.
