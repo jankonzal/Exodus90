@@ -28,7 +28,7 @@ Otče náš …
 #### Zamyšlení:
 Je snadné být neustále nespokojen se současností. Většina z nás je zvyklá dívat se na „další nejlepší věc“, o které věříme, že nám nakonec zajistí to, po čem nejvíce toužíme. V naší netrpělivosti ignorujeme přítomnost, zatímco toužíme po lepším zítřku. Přesto žít tímto způsobem znamená obrátit se zády k samotnému životu. Jako křesťané jsme povoláni žít život plně v přítomném okamžiku, i když se současnost skládá z dřiny, zármutku nebo bolesti.
 
- Dnes se Izraelité připravují na příchod úsvitu. Zároveň jsou přítomni noci, protože noc vyžaduje jejich detailní pozornost. Pokud přehlédnou jednu část oběti, která se jim naskytla, může jim svítání připadat mnohem ponuřejší, než by jinak bylo.
+Dnes se Izraelité připravují na příchod úsvitu. Zároveň jsou přítomni noci, protože noc vyžaduje jejich detailní pozornost. Pokud přehlédnou jednu část oběti, která se jim naskytla, může jim svítání připadat mnohem ponuřejší, než by jinak bylo.
 
 Kvůli tvojí reakci na Boží volání ke svobodě nyní také očekáváš úsvit. Těchto devadesát dní oběti je drahocenný čas. Může být snadné dívat se na tyto dny jako na obtěžování nebo na zbytečnou zkoušku vůle. Možná netrpělivě čekáte na den, kdy tyto nesmysly skončí, a můžete si užívat života na svobodě. To je chyba. Toto je čas na oběti, které jsou před tebou. Tvoje rodina tě prosí, aby tě změnil tvůj čas v modlitbě. Církev touží po tom, abys prostřednictvím své askeze vyrostl a byl tu více pro lidi v církvi. Tvoji bratři spoléhají na to, že jim pomůžeš stoupat, protože oni pomohou stoupat tobě. Nakloň se. Žij v přítomnosti.
 
