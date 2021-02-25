@@ -33,3 +33,5 @@ Ježíš nám říká: *„Miluj Hospodina, Boha svého, z celého svého srdce,
 Zamysli se nad vzorci svého každodenního života. Poskytuješ pomoc kolem domu, kterou si tvoje žena přeje? Dáváš pozor na potřeby svých dětí? Poskytuješ svému otci a matce čest a péči, zejména ve stáří? Sloužíš svým klientům a spolupracovníkům v kanceláři s laskavostí? Bereš ohled na dobro druhých, když závodně sportuješ – nebo když sedíš za volantem auta? Přebíráš zodpovědnost za lidi kolem sebe, ve svém okolí nebo ve městě tím, že nabízíš pomoc s prací na dvoře, děláním jídla a hlídáním dětí? A nakonec aktivně podporuješ své bratry ve vašem bratrství Exodu (zejména svou kotvu) způsobem, který dává tvým bratrům jistotu, že se na tebe mohou spolehnout?
 
 Tady je hodně k modlení. Dovol Pánu, aby se připojil k tvému sebehodnocení.
+-------------------------------------------------------------------------------
+Skutky 2:44-46 *Všichni, kteří uvěřili, byli pospolu a měli všechno společné. Prodávali svůj majetek a rozdělovali všem podle toho, jak kdo potřeboval. Každého dne pobývali svorně v chrámu, po domech lámali chléb a dělili se o jídlo s radostí a s upřímným srdcem.*
