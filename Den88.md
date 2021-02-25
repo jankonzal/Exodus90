@@ -31,7 +31,7 @@ Dnes možná zažíváš svobodu úplně novým způsobem. Pokud ano, děkuj Boh
 
 Na druhou stranu možná ještě nemáš velkou svobodu. Možná jsi narazil na poušť. Skočil jsi na potěšení, nechal se unést pokušením, nebo upadl do staré neřesti. Znamená to, že se nemůžeš dostat do zaslíbené země?
 
-Podívej se na Boží slovo. Uprostřed jejich exodu Izraelité padli do hříchů. Vrátili se k uctívání idolů a měli orgie (Exodus 32: 1–6). Odmítl Bůh tento lid a vzdal se jeho vedení do zaslíbené země? Ne. Dal Izraelcům jejich tolik potřebný plán, Zákon, který je zachován v knize Leviticus. Bylo to spravedlivé a milosrdné. Tento plán by vedl k odpuštění, sjednocení s Bohem a dále do zaslíbené země, pokud by Izraelité činili pokání a rozhodli se ho přijmout.
+Podívej se na Boží slovo. *Uprostřed jejich exodu Izraelité padli do hříchů. Vrátili se k uctívání idolů a měli orgie.* (Exodus 32:1–6) Odmítl Bůh tento lid a vzdal se jeho vedení do zaslíbené země? Ne. Dal Izraelcům jejich tolik potřebný plán, Zákon, který je zachován v knize Leviticus. Bylo to spravedlivé a milosrdné. Tento plán by vedl k odpuštění, sjednocení s Bohem a dále do zaslíbené země, pokud by Izraelité činili pokání a rozhodli se ho přijmout.
 
 I když je jejich hříchy nezastavili na cestě do země zaslíbené, dnes vidíme, že jejich pochybnosti v Boha ano. Bez ohledu na to, zda dnes prožíváš větší svobodu, či nikoliv, Pán tě chce plně osvobodit a plně žít život pro něj. Tváří v tvář nadcházející světové opozici pochybuješ, že by to pro tebe mohl pán udělat?
 
