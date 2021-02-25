@@ -30,13 +30,13 @@ Jako křesťanům nám Církev říká, abychom se zdrželi práce a odpočíval
 
 Zastavme se a zeptejme se sami sebe:
 
-Proč se tyto světské věci musí dělat v neděli? Čí vůle je pro nás důležitější: neexistující pán, který říká, že tyto věci nemohou čekat až později? Nebo Bůh, který je naším pravým Pánem a který nás miluje? Na rovinu řečeno otázku: Jsme ochotni hřešit (vědomě se otočit zády k Boží vůli) tím, že necháme rušit týden, aby ovládl Den Páně, místo abychom se rozhodli věnovat se svatému odpočinku a uctívání Pána? Tyto věci, o kterých si myslíme, že jsou tak důležité, by často mohly počkat až na později - nebo by mohly být udělány v pátek nebo v sobotu, kdy jsme slavili světský sabat.
+Proč se tyto světské věci musí dělat v neděli? Čí vůle je pro nás důležitější: neexistující pán, který říká, že tyto věci nemohou čekat až později? Nebo Bůh, který je naším pravým Pánem a který nás miluje? Na rovinu: Jsme ochotni hřešit (vědomě se otočit zády k Boží vůli) tím, že necháme rušit týden, aby ovládl Den Páně, místo abychom se rozhodli věnovat se svatému odpočinku a uctívání Pána? Tyto věci, o kterých si myslíme, že jsou tak důležité, by často mohly počkat až na později - nebo by mohly být udělány v pátek nebo v sobotu, kdy jsme slavili světský sabat.
 
 Tato situace ukazuje, jak moc potřebujeme Den Páně a zasvěcené svátky, aby nám pomohli udržet život v perspektivě a pamatovat na to, že Bůh přichází před prací. Bůh chce, abychom byli svobodní. Chce, abychom se od něj mohli občerstvit. Ve světě, ve kterém se snažíme zastavit neustálou zaneprázdněnost a věnovat čas Bohu a vedení své rodiny k němu, funguje Otcovo přikázání, aby byl svatý Den Páně, pro naše dobro.
 
-Rozčiluje tě důraz na odpočinek, hodování a volný čas v den Páně? Pokud ano, věnujte dnes ve své svaté hodince čas a přemýšlej nad tím proč. Pak to řekni Bohu a dovol mu, aby s tebou mluvil v pravdě a s láskou.
+Rozčiluje tě důraz na odpočinek, hodování a volný čas v den Páně? Pokud ano, věnuj dnes ve své svaté hodince čas a přemýšlej nad tím proč. Pak to řekni Bohu a dovol mu, aby s tebou mluvil v pravdě a s láskou.
 
-Pokud naopak toužíš znovu uspořádat své nedělní a zasvěcené dny povinnosti lépe milovat a sloužit Bohu, děkuj. Poté si udělej čas na rozhovor s Pánem o tom, jak bys pro něj mohl v těchto dnech žít svobodněji.
+Pokud naopak toužíš znovu uspořádat své nedělní a zasvěcené dny povinností lépe milovat a sloužit Bohu, děkuj. Poté si udělej čas na rozhovor s Pánem o tom, jak bys pro něj mohl v těchto dnech žít svobodněji.
 
 -------------------------------------------------------------------------------
 KKC 2185: *V neděli a o jiných zasvěcených svátcích se věřící mají zdržovat těch prací nebo činností, které jsou na překážku bohopoctě a radosti, jež je vlastní dnu Páně, a zabraňují konání milosrdných skutků a nezbytnému uvolnění mysli i těla. Potřeby rodiny nebo velká společenská užitečnost jsou oprávněnou omluvou od zachování příkazu o nedělním klidu. Věřící však budou bdít, aby oprávněné omluvy nezaváděly zvyky škodlivé náboženství, rodinnému životu a zdraví.*   
