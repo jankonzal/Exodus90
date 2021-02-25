@@ -21,7 +21,7 @@ Otče náš...
 *Áronovi Mojžíš řekl: „Co ti tento lid udělal, že jsi naň uvedl tak veliký hřích?“ Áron odvětil: „Nechť můj pán tolik neplane hněvem! Ty víš, že tento lid je nakloněn ke zlému. Řekli mi: ‚Udělej nám boha, který by šel před námi. Vždyť nevíme, co se stalo s Mojžíšem, s tím člověkem, který nás vyvedl z egyptské země.‘ Řekl jsem jim: Kdo má zlaté náušnice , ať si je strhne a donese mi je. Hodil jsem to do ohně, a tak vznikl tento býček.“*
 
 #### Zamyšlení:
-Podívej se na Aaronovu dětinskou obranu proti Mojžíšově otázce. Aaron se nejprve pokouší potlačit Mojžíšův hněv tím, že obviňuje hloupost izraelského lidu. Poté vypráví polopravdivý příběh, následovaný směšnou větou: „Hodil jsem to (zlato) do ohně, a tak vznikl tento býček“ (Exodus 32:24). Je jasné, že Aaron se snaží vyhýbat odpovědnosti za své činy.
+Podívej se na Aaronovu dětinskou obranu proti Mojžíšově otázce. Aaron se nejprve pokouší potlačit Mojžíšův hněv tím, že obviňuje hloupost izraelského lidu. Poté vypráví polopravdivý příběh, následovaný směšnou větou: *„Hodil jsem to (zlato) do ohně, a tak vznikl tento býček.“* (Exodus 32:24) Je jasné, že Aaron se snaží vyhýbat odpovědnosti za své činy.
 
 Aaron není náhodný Izraelita; on je Mojžíšův bratr. Byl blízko k Bohu a byl svědkem jeho úžasných děl od začátku Mojžíšova vedení. Aaron byl dán Mojžíšovi Bohem, aby byl Mojžíšovými ústy (Exodus 4:16). Přesto tento vyvolený muž upadá do vážného hříchu. Ber to na vědomí. Dokonce i lidé, kteří byli blízko Boha po dlouhou dobu (mnohem déle než devadesát dní), mohou stále rychle padnout. Mohou dokonce padnout tak hluboko, aby vytvořili modlu a lhali o tom sobě i ostatním. To se může stát, když přestaneš čekat na Boží slovo a začneš poslouchat kakofonii světa.
 
