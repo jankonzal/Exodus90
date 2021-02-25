@@ -11,7 +11,7 @@ Dostal jsi se do 7. týdne. Tento týden je v polovině tohoto duchovního cvič
 Akční body:
 1. Cti svou svatou hodinku. Bůh s tebou má co sdílet. Touží s tebou sdílet své vlastní já. Dávej mu každý den čas na modlitbu. Omlouvat se a říkat, že to za to nestojí, znamená urážet samotného Boha. Miluje nás tolik a zaslouží si od nás mnohem víc, než naše výmluvy.
 
-2. Přejděi ke zdroji. (Chodit na mši na víc) „Eucharistie je zdrojem a vrcholem celého křesťanského života“ (KKC 1324). Jak jsi si vedl při účasti na jedné mši navíc týdně? Pokud jsi se nezavázal k jednomu dalšímu setkání s Ježíšem Kristem přítomným v eucharistii každý týden, zeptejte se sám sebe proč. Svoboda pochází od samotného Boha. Naplánuj si od dnešního dne čas na účast na jedné mši navíc týdně.
+2. Přejděi ke zdroji. (Chodit na mši na víc) *„Eucharistie je zdrojem a vrcholem celého křesťanského života“* (KKC 1324). Jak jsi si vedl při účasti na jedné mši navíc týdně? Pokud jsi se nezavázal k jednomu dalšímu setkání s Ježíšem Kristem přítomným v eucharistii každý týden, zeptejte se sám sebe proč. Svoboda pochází od samotného Boha. Naplánuj si od dnešního dne čas na účast na jedné mši navíc týdně.
 
 3. Zpytuj svědomí. Pokud jsi byl úspěšní při nočním zkoumání svědomí, začal jsi si všímat svobody a úspěchu, který ti Bůh dosud poskytl. Pokud jsi nedělal noční zpytování, tvůj osobní úspěch v 91. dni už vypadá bezútěšně. Začni nyní zpytovat své svědomí každý večer. (Vysvětlení, jak provádět noční zpytování svědomí, viz „Jak provést noční zkoušku“, v příručce Polní průvodce).
 
