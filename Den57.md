@@ -4,7 +4,7 @@
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
 
-Izraelci se chystají naučít, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh přebývá mezi svým lidem. "Či snad nevíte, že vaše tělo je chrámem Ducha svatého, který ve vás přebývá a jejž máte od Boha?" (1. Korintským 6:19) Jak zdobíš svůj chrám? Co dovoluješ na tomto svatém místě? Co děláte pro to,
+Izraelci se chystají naučít, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh přebývá mezi svým lidem. *„Či snad nevíte, že vaše tělo je chrámem Ducha svatého, který ve vás přebývá a jejž máte od Boha?“* (1. Korintským 6:19) Jak zdobíš svůj chrám? Co dovoluješ na tomto svatém místě? Co děláte pro to,
 aby toto místo bylo svaté jako svatostánek, aby v tobě mohl přebývat Bůh?
 
 Akční body:
@@ -30,12 +30,10 @@ Modli se za všechny muže v Exodu, stejně jako oni se modlí za tebe.
 Otče náš...
 
 #### Exodus 25:1–9 (CEP)
-*Hospodin promluvil k Mojžíšovi: „Mluv k synům Izraele, ať pro mne vyberou oběť pozdvihování. Vyberete oběť pozdvihování pro mne od každého, kdo ji ze srdce dobrovolně odevzdá. Toto bude oběť pozdvihování, kterou od nich vyberete: zlato,stříbro a měď; látka purpurově fialová, nachová a karmínová, jemné plátno a kozí
-srst; načerveno zbarvené beraní kůže, tachaší kůže a akáciové dřevo; olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek; karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. Ať mi udělají svatyni a já budu bydlet uprostřed nich. Uděláte všechno přesně podle toho, co ti
-ukazuji jako vzor svatého příbytku i vzor všech bohoslužebných předmětů.*
+*Hospodin promluvil k Mojžíšovi: „Mluv k synům Izraele, ať pro mne vyberou oběť pozdvihování. Vyberete oběť pozdvihování pro mne od každého, kdo ji ze srdce dobrovolně odevzdá. Toto bude oběť pozdvihování, kterou od nich vyberete: zlato,stříbro a měď; látka purpurově fialová, nachová a karmínová, jemné plátno a kozí srst; načerveno zbarvené beraní kůže, tachaší kůže a akáciové dřevo; olej na svícení, balzámy na olej k pomazání a na kadidlo z vonných látek; karneolové drahokamy a kameny pro zasazení do nárameníku a náprsníku. Ať mi udělají svatyni a já budu bydlet uprostřed nich. Uděláte všechno přesně podle toho, co ti ukazuji jako vzor svatého příbytku i vzor všech bohoslužebných předmětů.*
 
 #### Zamyšlení:
-Jako křesťané nepřinášíme přesnou oběť, kterou žádá Bůh v dnešním čtení z knihy Exodus. Pán nás však žádá, abychom se obětovali, abychom podpořili práci církve. Ve skutečnosti jsou křesťané žádáni, aby dali ještě víc, než kolik zlata a stříbra Bůh požadoval od Izraelitů. Svatý Pavel nám říká, že máme dávat svá těla jako oběť Bohu a Církvi. *"Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba."* (Římanům 12: 1)
+Jako křesťané nepřinášíme přesnou oběť, kterou žádá Bůh v dnešním čtení z knihy Exodus. Pán nás však žádá, abychom se obětovali, abychom podpořili práci církve. Ve skutečnosti jsou křesťané žádáni, aby dali ještě víc, než kolik zlata a stříbra Bůh požadoval od Izraelitů. Svatý Pavel nám říká, že máme dávat svá těla jako oběť Bohu a Církvi. *„Vybízím vás, bratří, pro Boží milosrdenství, abyste sami sebe přinášeli jako živou, svatou, Bohu milou oběť; to ať je vaše pravá bohoslužba."* (Římanům 12: 1)
 
 Katechismus to krásně vysvětluje: *Eucharistie je také obětí církve. Církev, jež je Kristovým Tělem, má účast na oběti své Hlavy. Je s Kristem sama celá obětována. Spojuje se s jeho přímluvou u Otce za všechny lidi. V eucharistii se stává Kristova oběť také obětí údů jeho Těla. Život věřících, jejich chvála, jejich utrpení, jejich modlitba, jejich práce jsou spojeny s Kristovou chválou a modlitbou, s jeho utrpením a prací i s jeho bezvýhradnou obětí a tím získávají novou hodnotu. Kristova oběť, přítomná na oltáři, poskytuje všem generacím křesťanů možnost být spojeni s jeho obětí.* (KKC 1368)
 
