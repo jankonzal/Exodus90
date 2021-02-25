@@ -32,3 +32,5 @@ Jak čteme v listě Židům: „Přinášejme tedy skrze Ježíše stále oběť
 Jaká je tvoje mentalita dnes? Stále toužíš opustit cestu Exodu a sklouznout zpět do snadnějšího způsobu života? Nebo tě Pán osvobodil, abys viděl velké dary, které ti dal, a slávu plánu. Na kterém v tobě skrze tyto dary pracuje? Učíš se modlit, obětovat a tlačit své bratry k svatosti. Jsi školen v návycích, po kterých většina mužů (pokud jsou čestní) touží. Poznáváš velikost těchto darů?  
 
 Promluv dnes s Pánem tvých touhách vzdát se nebo pokračovat v těchto třech darech dnes a v den 91. Poslouchej a utěšuj se milujícím plánem pro tebe.
+-------------------------------------------------------------------------------
+[15] Strong’s Lexicon and Dictionary, Word Designation “H8548.”
