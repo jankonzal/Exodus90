@@ -4,7 +4,7 @@
 
 Jsi na drsné horské poušti na úpatí hory Sinaj.
 
-Izraelci se chystají naučít, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh přebývá mezi svým lidem. *„Či snad nevíte, že vaše tělo je chrámem Ducha svatého, který ve vás přebývá a jejž máte od Boha?“* (1. Korintským 6:19) Jak zdobíš svůj chrám? Co dovoluješ na tomto svatém místě? Co děláte pro to,
+Izraelci se chystají naučít, jak postavit a ozdobit svatostánek, svaté místo, kde Bůh přebývá mezi svým lidem. *„Či snad nevíte, že vaše tělo je chrámem Ducha svatého, který ve vás přebývá a jejž máte od Boha?“* (1. Korintským 6:19) Jak zdobíš svůj chrám? Co dovoluješ na tomto svatém místě? Co děláš pro to,
 aby toto místo bylo svaté jako svatostánek, aby v tobě mohl přebývat Bůh?
 
 Akční body:
